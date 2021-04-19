@@ -485,6 +485,12 @@ August 2020
 
 	
 Removed references to the invalidated Privacy Shield.
+
+Updates
+
+You may use the form below to subscribe to updates of this page.
+
+ Subscribe
 About
 Zoom Blo
 Customer
@@ -528,7 +534,7 @@ English
     
 
 
-Copyright ©2021 Zoom Video Communications, Inc. All rights reserved. Privacy & Legal PoliciesAbout AdsSecurity
+Copyright ©2021 Zoom Video Communications, Inc. All rights reserved. Privacy Trust Center Legal & Compliance Do Not Sell My Personal Information
 To opt out of Zoom making certain portions of your information relating to cookies available to third parties or Zoom’s use of your information in connection with similar advertising technologies or to opt out of retargeting activities which may be considered a “sale” of personal information under the California Consumer Privacy Act (CCPA) please click the “Opt-Out” button below.
 
 Privacy Policy
