@@ -1,4 +1,3 @@
-Need help picking a plan or products?  Get a customized recommendation
 Log In
 Cloudflare Cookie Policy
 
