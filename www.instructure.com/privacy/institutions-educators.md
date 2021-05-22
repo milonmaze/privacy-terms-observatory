@@ -23,6 +23,11 @@ Canvas
 MasteryConnect
 Portfolium
 GET A DEMO
+
+Explore Our Stimulus Funding Resources
+
+ 
+Close notification
 Privacy FAQs for Institutions & Educators
 
 Welcome! We’ve created this page to provide answers to questions that you might have about our privacy practices and the Canvas Learning Management System. You can review our complete Product Privacy Policy for Canvas users here.
@@ -151,9 +156,9 @@ About Canvas
 Leadership
 Partners
 Careers
-Accessibility
 Privacy
 Security
+Accessibility
 Contact Us
 Footer Utility
 Privacy
