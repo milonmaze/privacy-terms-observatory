@@ -23,6 +23,11 @@ Canvas
 MasteryConnect
 Portfolium
 GET A DEMO
+
+Explore Our Stimulus Funding Resources
+
+ 
+Close notification
 Marketing Privacy Policy
 
 Last Updated: October 28, 2019
@@ -211,9 +216,9 @@ About Canvas
 Leadership
 Partners
 Careers
-Accessibility
 Privacy
 Security
+Accessibility
 Contact Us
 Footer Utility
 Privacy
