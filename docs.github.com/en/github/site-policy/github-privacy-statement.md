@@ -1,4 +1,3 @@
-This article is also available in your language of choice. Click here
 GitHub Docs
 English
  
