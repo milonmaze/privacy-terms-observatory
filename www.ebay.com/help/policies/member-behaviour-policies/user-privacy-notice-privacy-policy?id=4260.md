@@ -1,19 +1,4 @@
 Skip to main content
-	
-	
-Customer Service
-Hi! Sign in or registerDaily DealsHelp & Contact
-My eBay
-Expand My eBay
-Notification
-Expand Cart
-Sell
-Page navigation
-Home
-Help
-User Privacy Notice
-35 min article
-User Privacy Notice
 1.   Scope and updates of this User Privacy Notice
 2. Controller
 3.  Data protection officer and contact
@@ -156,8 +141,3 @@ Threats and offensive language policy
 Threats, offensive language and hate speech are not allowed on eBay.
 
 2 min article
-Additional site navigation
-About eBayAnnouncementsCommunitySecurity CenterResolution CenterSeller CenterPoliciesAffiliatesHelp & ContactSite Map
-
-Copyright © 1995-2021 eBay Inc. All Rights Reserved. Accessibility, User Agreement, Privacy, Cookies, Do not sell my personal information and AdChoice	
-Norton Secured - powered by DigiCert
