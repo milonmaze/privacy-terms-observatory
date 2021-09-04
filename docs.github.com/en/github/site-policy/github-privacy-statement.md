@@ -1,5 +1,3 @@
-GitHub Docs
-GitHub/Site policy/GitHub Privacy Statement
 GitHub Privacy Statement
 In this article
 The short version
@@ -363,14 +361,3 @@ Or, learn how to contribute.
 
 Still need help?
 Ask the GitHub communityContact support
-© 2021 GitHub, Inc.
-Terms
-Privacy
-Security
-Status
-Help
-Contact GitHub
-Pricing
-Developer API
-Training
-About
