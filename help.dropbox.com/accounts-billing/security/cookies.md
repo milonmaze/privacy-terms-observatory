@@ -1,9 +1,3 @@
-Open/close menu
-Open/close search
-Home
-Accounts & billing
-Security & privacy
-Use of cookies and similar technologies
 Use of cookies and similar technologies
 
 Dropbox uses cookies and similar technologies, such as pixels, to provide, improve, protect, and promote our services. For the purposes of this policy we will refer to all of these technologies as “cookies.” This page includes information on the what, who, and how of these technologies in connection with the Dropbox website and services.
@@ -84,41 +78,10 @@ Dropbox also adheres to the European Interactive Digital Advertising Alliance’
 For more information on how to control and access your personal data, please see our privacy policy FAQ. If you’d like to reach out to Dropbox regarding the use of data collected from cookies, contact our Data Protection Officer at privacy@dropbox.com.
 
 How helpful was this article?
-Related articles
 Other ways to get help
 Community
 Twitter support
 Contact support
-Dropbox
-Desktop app
-Mobile apps
-Plans
-Security
-Features
-Resources
-Products
-Plus
-Professional
-Business
-Enterprise
-Company
-About us
-Jobs
-Press
-Investor relations
-Blog
-Support
-Help center
-Contact us
-Cookies
-Manage cookies
-Privacy & terms
-Sitemap
-Community
-Developers
-Referrals
-Community
-English (United States)
 We use cookies to provide, improve, protect, and promote our services. Visit our Privacy Policy and Privacy Policy FAQ to learn more. You can manage your personal preferences in our Cookie Consent Tool.
 Decline
 Accept All
