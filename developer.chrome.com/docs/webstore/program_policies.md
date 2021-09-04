@@ -1,7 +1,4 @@
 Skip to content
-Documentation
-Chrome Web Store
-Chrome Web Store policies
 Developer Program Policies
 
 Published on Friday, February 28, 2014 • Updated on Tuesday, June 29, 2021
@@ -332,28 +329,6 @@ In the event that your Product is removed from Chrome Web Store, you will receiv
 
 Last updated: Tuesday, June 29, 2021 Improve article
 
-Follow us
-Contribute
-File a bug
-View source
-Related content
-web.dev
-Web Fundamentals
-Case studies
-DevWeb Content Firehose
-Podcasts
-Connect
-Twitter
-YouTube
-GitHub
-Chrome
-Firebase
-All products
-Privacy
-Terms
-Choose language
-ENGLISH (en)
-Content available under the CC-BY-SA-4.0 license
 We serve cookies on this site to analyze traffic, remember your preferences, and optimize your experience.
 More details
 Ok, Got it.
