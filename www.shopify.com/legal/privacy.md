@@ -1,21 +1,9 @@
-Skip to Content
-Log in
-Privacy Policy
-For everyone
 Privacy Policy
 
 How Shopify handles your data
 
 Updated May 4, 2021
 
-Introduction
-Our values
-Why we process your information
-Your rights over your information
-Where we send your information
-How we protect your information
-How we use “cookies” and other tracking technologies
-How you can reach us
 Introduction
 
 In our mission to make commerce better for everyone at Shopify, we collect and use information about you, our
@@ -130,53 +118,3 @@ Attn: Data Protection Officer
 77 Robinson Road,
 #13-00 Robinson 77,
 Singapore 068896
-
-More resources
-About Careers Press and Media Shopify Plus Sitemap
-ONLINE STORE
-Sell online
-Features
-Examples
-Website editor
-Online retail
-Ecommerce website
-Domain names
-Themes
-Shopping cart
-Ecommerce hosting
-Mobile commerce
-Ecommerce software
-Online store builder
-Oberlo
-Dropshipping Business
-Store themes
-Cross-Border Ecommerce
-POINT OF SALE
-Point of sale
-Features
-Hardware
-SUPPORT
-24/7 support
-Shopify Help Center
-Shopify Community
-API documentation
-Free tools
-Free stock photos
-Websites for sale
-Hatchful
-Business name generator
-SHOPIFY
-Contact
-Partner program
-Affiliate program
-App developers
-Investors
-Community Events
- 
- 
- 
- 
- 
-Terms of Service Privacy Policy 
-Change your country or region.
-USA
