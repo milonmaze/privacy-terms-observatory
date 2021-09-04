@@ -1,15 +1,7 @@
-Skip to Content
-Log in
-Privacy Policy
-For Shopify visitors
 Privacy for Shopify Visitors
 
 For people who visit Shopify’s websites or contact Shopify support
 
-Introduction
-What information we collect about you and why
-When and why we share your information with others
-Your rights over your information
 Introduction
 
 If you visit one of Shopify’s websites or contact Shopify support, we generally use your personal information to provide you with the specific service you are using. Additionally, please review our overall privacy policy that applies to everyone whose information we process.
@@ -68,53 +60,3 @@ if we merge with or are acquired by another company
 Your rights over your information
 
 We believe that you should have the right to access and control your own personal information, no matter where you live. We retain your personal information until you tell us to delete it. Please submit a data subject request through our online portal if you would like to access or request that we delete your personal information. Please keep in mind that after we anonymize your information, we will continue to use non-identifiable information to improve our services. Finally, we do not and will not “sell” your personal information, as that term is used in California law.
-
-More resources
-About Careers Press and Media Shopify Plus Sitemap
-ONLINE STORE
-Sell online
-Features
-Examples
-Website editor
-Online retail
-Ecommerce website
-Domain names
-Themes
-Shopping cart
-Ecommerce hosting
-Mobile commerce
-Ecommerce software
-Online store builder
-Oberlo
-Dropshipping Business
-Store themes
-Cross-Border Ecommerce
-POINT OF SALE
-Point of sale
-Features
-Hardware
-SUPPORT
-24/7 support
-Shopify Help Center
-Shopify Community
-API documentation
-Free tools
-Free stock photos
-Websites for sale
-Hatchful
-Business name generator
-SHOPIFY
-Contact
-Partner program
-Affiliate program
-App developers
-Investors
-Community Events
- 
- 
- 
- 
- 
-Terms of Service Privacy Policy 
-Change your country or region.
-USA
