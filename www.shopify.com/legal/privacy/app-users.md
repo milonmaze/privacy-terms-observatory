@@ -1,15 +1,7 @@
-Skip to Content
-Log in
-Privacy Policy
-For users of Shopify apps
 Privacy for Users of Shopify Apps
 
 For users of Shopify’s apps, customer-facing services, or free business tools
 
-Introduction
-What information we collect about you and why
-When and why we share your information with others
-Your rights over your information
 Introduction
 
 Shopify offers a range of apps and services meant to make it easier for you to buy things online and track your orders. For example, we offer Shop to help you track purchases you have made online, and Shop Pay to help you quickly complete a transaction on Shopify-powered stores. When you use these apps, or if you use any of our free business tools, we use your personal information to provide you with and improve the specific service you are using. Additionally, please review our overall privacy policy that applies to everyone whose information Shopify processes.
@@ -118,53 +110,3 @@ For all other services, please submit a data subject request through our online 
 Please keep in mind that after we anonymize your information, we will continue to use aggregated non-identifiable information to improve our services.
 
 Finally, we do not and will not “sell” your personal information, as that term is used in California law.
-
-More resources
-About Careers Press and Media Shopify Plus Sitemap
-ONLINE STORE
-Sell online
-Features
-Examples
-Website editor
-Online retail
-Ecommerce website
-Domain names
-Themes
-Shopping cart
-Ecommerce hosting
-Mobile commerce
-Ecommerce software
-Online store builder
-Oberlo
-Dropshipping Business
-Store themes
-Cross-Border Ecommerce
-POINT OF SALE
-Point of sale
-Features
-Hardware
-SUPPORT
-24/7 support
-Shopify Help Center
-Shopify Community
-API documentation
-Free tools
-Free stock photos
-Websites for sale
-Hatchful
-Business name generator
-SHOPIFY
-Contact
-Partner program
-Affiliate program
-App developers
-Investors
-Community Events
- 
- 
- 
- 
- 
-Terms of Service Privacy Policy 
-Change your country or region.
-USA
