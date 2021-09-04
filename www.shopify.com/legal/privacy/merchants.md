@@ -1,16 +1,7 @@
-Skip to Content
-Log in
-Privacy Policy
-For merchants
 Privacy for Merchants
 
 For merchants using Shopify to power their stores
 
-Introduction
-What information we collect about you and why
-When and why we share your information with others
-Your rights over your information
-Your customers’ information
 Introduction
 
 If you are a merchant using Shopify to power your business, or a Supplier or Retailer participating in Handshake, we collect and use your personal information to provide you with the use of our platform and its services, and generally to help you better manage your business and your relationship with your customers. Additionally, please review our overall privacy policy that applies to everyone whose information we process.
@@ -100,53 +91,3 @@ In order to power your business, we collect and use personal information about y
 Because you decide how the personal information of your customers will be used, you need to make sure your customers understand how you (and how we on your behalf) collect and process their personal information. You should do this by, at a minimum, posting a privacy policy on your store that describes the information you collect, how you use it, and who you share it with.
 
 To help get you started with this, you can check out our privacy policy generator. Also, if you are collecting any “sensitive” personal information from your customers (for example, information about health, race, ethnicity, genetics, biometrics, trade union membership, political opinions, philosophical or religious beliefs, criminal history, or sexual interests), you should get the affirmative, express consent from your customers to use and process this information.
-
-More resources
-About Careers Press and Media Shopify Plus Sitemap
-ONLINE STORE
-Sell online
-Features
-Examples
-Website editor
-Online retail
-Ecommerce website
-Domain names
-Themes
-Shopping cart
-Ecommerce hosting
-Mobile commerce
-Ecommerce software
-Online store builder
-Oberlo
-Dropshipping Business
-Store themes
-Cross-Border Ecommerce
-POINT OF SALE
-Point of sale
-Features
-Hardware
-SUPPORT
-24/7 support
-Shopify Help Center
-Shopify Community
-API documentation
-Free tools
-Free stock photos
-Websites for sale
-Hatchful
-Business name generator
-SHOPIFY
-Contact
-Partner program
-Affiliate program
-App developers
-Investors
-Community Events
- 
- 
- 
- 
- 
-Terms of Service Privacy Policy 
-Change your country or region.
-USA
