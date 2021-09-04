@@ -1,18 +1,4 @@
 Skip to main content
-	
-	
-Customer Service
-Hi! Sign in or registerDaily DealsHelp & Contact
-SellMy eBay
-Expand My eBay
-Notification
-Expand Cart
-Page navigation
-Home
-Help
-Cookies, web beacons, and similar technology ("Cookie Notice")
-13 min article
-Cookies, web beacons, and similar technology ("Cookie Notice")
 1. Information regarding the technologies we use
 2. Your Choices
 3. Do Not Track
@@ -73,8 +59,3 @@ In our User Privacy Notice we have compiled all essential information about our 
 This User Privacy Notice is effective from June 20, 2020. View the previous User Privacy Notice.
 
 35 min article
-Additional site navigation
-About eBayAnnouncementsCommunitySecurity CenterResolution CenterSeller CenterPoliciesAffiliatesHelp & ContactSite Map
-
-Copyright © 1995-2021 eBay Inc. All Rights Reserved. Accessibility, User Agreement, Privacy, Cookies, Do not sell my personal information and AdChoice	
-Norton Secured - powered by DigiCert
