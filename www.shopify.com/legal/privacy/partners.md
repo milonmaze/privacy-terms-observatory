@@ -1,16 +1,7 @@
-Skip to Content
-Log in
-Privacy Policy
-For Shopify partners
 Privacy for Shopify Partners
 
 For Shopify Partners who develop apps, build stores, refer merchants, or help merchants operate their stores
 
-Introduction
-What information we collect about you and why
-When and why we share your information with others
-Your rights over your information
-Merchants that use your services
 Introduction
 
 If you participate in Shopify’s partner program (for example, by developing apps or themes for use by Shopify merchants, by serving as an affiliate that refers potential merchants to us, or by helping merchants build or manage their stores), we collect and use your personal information to provide you with the use of our platform and its services, and generally to help you work with our merchants. Additionally, please review our overall privacy policy that applies to everyone whose information we process.
@@ -76,53 +67,3 @@ Finally, we do not and will not “sell” your personal information, as that te
 Merchants that use your services
 
 Shopify Partners provide a range of critical services to our merchants. When merchants sign up to use your services (for example, when they install an app you have developed), we will provide you with their personal information on the merchant’s instruction. When we do this, we are acting on behalf of our merchants. It is your responsibility to protect our merchant’s personal information and process it safely and securely in accordance with applicable law, our Partner Program Agreement, API License & Terms of Use, any other terms governing other Shopify services you may use. Shopify also requires you to provide merchants with a clear and transparent privacy policy to help them understand your privacy practices, and how you use the personal information they provide you. If you develop an app that you would like to list on Shopify’s App Store, that app will also require a privacy policy. To help you with this, we have prepared a template App Privacy Policy that you can use as a starting point to help explain what information you collect, and how you use and disclose that information.
-
-More resources
-About Careers Press and Media Shopify Plus Sitemap
-ONLINE STORE
-Sell online
-Features
-Examples
-Website editor
-Online retail
-Ecommerce website
-Domain names
-Themes
-Shopping cart
-Ecommerce hosting
-Mobile commerce
-Ecommerce software
-Online store builder
-Oberlo
-Dropshipping Business
-Store themes
-Cross-Border Ecommerce
-POINT OF SALE
-Point of sale
-Features
-Hardware
-SUPPORT
-24/7 support
-Shopify Help Center
-Shopify Community
-API documentation
-Free tools
-Free stock photos
-Websites for sale
-Hatchful
-Business name generator
-SHOPIFY
-Contact
-Partner program
-Affiliate program
-App developers
-Investors
-Community Events
- 
- 
- 
- 
- 
-Terms of Service Privacy Policy 
-Change your country or region.
-USA
