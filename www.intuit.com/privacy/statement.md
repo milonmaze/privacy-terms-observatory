@@ -10,7 +10,7 @@ Our privacy statement spells out exactly what we do with your data after you sha
 
 Intuit Global Privacy Statement
 
-Last Updated: December 3, 2020
+Last Updated: July 9, 2021
 
 See previous Privacy Statements
 
@@ -63,6 +63,11 @@ The personal information that we receive about you depends on the context of you
 
 
 
+
+
+
+
+Learn more about the GLBA notice here.
 
 Creating an account. We collect information when you create an account, interact with the Intuit Platform or activate a subscription. Personal information may include your contact information (such as your name, address, phone number and email), profile photo, billing information (your payment information), usernames and credentials.
 Identification information. We collect information to verify your identity, including your name, social security number, social insurance number, driver’s license numbers, government-issued identification details, for example to verify your identity in order to help you file your tax return.
@@ -194,12 +199,17 @@ Your rights
 
 At Intuit, we believe that you have rights to information that pertains to you, your household and/or your business. If another person has input or processed information in the Intuit Platform on behalf of you, your family or your business (and we are processing such information as an Information Controller), you may ask to receive a copy of your information, even if you do not have an account with us.
 
+
+
+
 Depending on where you live, you may have certain state- or nation-specific rights with respect to your personal information that we collect and process.
+
+
+
 
 For specific information on what steps you can take to manage your privacy, please see the “Country and Region-Specific Terms” section for your country, below.
 
-Collapse all Expand all
-
+Expand AllCollapse All
 Verification
 Information retention
 International data transfers
@@ -240,8 +250,6 @@ You can submit Credit Karma privacy questions. Submit your privacy question her
 If you have an unresolved privacy or information use concern or complaint that we have not addressed satisfactorily, please contact our U.S.-based third party dispute resolution provider (free of charge) at https://feedback-form.truste.com/watchdog/request.
 
 You can also contact us through the following country and regional channels.
-
-
 Expand AllCollapse All
 United States
 Australia
