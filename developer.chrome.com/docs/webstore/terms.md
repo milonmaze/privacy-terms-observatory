@@ -215,7 +215,3 @@ If You do not agree with the modifications to the Agreement, You may terminate Y
 Please print and retain a copy of this document and any linked documents for your records.
 
 Last updated: Tuesday, May 4, 2021 Improve article
-
-We serve cookies on this site to analyze traffic, remember your preferences, and optimize your experience.
-More details
-Ok, Got it.
