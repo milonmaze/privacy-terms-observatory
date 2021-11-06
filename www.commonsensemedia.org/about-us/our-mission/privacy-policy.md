@@ -19,7 +19,6 @@ Best Movie Lists
 Best TV Lists
 YouTube Channel Reviews
 Sensical
- »
 Common Sense Selections
 Books
  »
