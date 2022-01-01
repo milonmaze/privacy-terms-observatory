@@ -1,5 +1,4 @@
 Help Center
-Search
 Help Topics
 Join Netflix
 Sign In
