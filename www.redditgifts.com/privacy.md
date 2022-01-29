@@ -1,52 +1,105 @@
-IMPORTANT UPDATE FROM REDDIT GIFTS 
-2021 will be the last year of Reddit Gifts.
-Please read more about this in the post in r/secretsanta on Reddit.
-Reddit Gifts Privacy Notice
-
-Effective October 15, 2020.
-
-We want you to understand how and why Reddit collects, uses, and shares information about you when you use Reddit Gifts. The main Reddit Privacy Policy also applies to your use of Reddit Gifts. This Privacy Notice explains some important additional things you should know about the information we collect, use, and share when you use Reddit Gifts.
-
-Additional Information You Provide to Us
-Account Information
-
-If you choose to create a Reddit Gifts account, you must provide some personal information so that we can provide our services to you. We collect the information you provide when you create a Reddit Gifts account, including your email, password, Reddit account username, first and last name, and mailing address. You can choose to provide additional information, including a bio, profile picture, shipping instructions, information about your social media accounts, and a link to a wish list or other website of your choosing. Any information we collect for your use of Reddit Gifts may be associated with the Reddit account being used for Reddit Gifts.
-
-Public Information
-
-Your Reddit Gifts account has a profile page that is public. This page contains your Reddit account username, bio, profile picture, and information about your activities on Reddit Gifts (e.g., Trophies, gifts sent, and gifts received). Your Reddit Gifts public profile also links to your Reddit profile.
-
-Additional Information We Share
-
-We will ask for your consent before sharing your information in a manner other than those that are set out in this Notice or the Privacy Policy.
-
-Gift Exchange Information
-
-When you participate in a gift exchange, we provide your match with the information necessary to complete the exchange, including your first and last name, Reddit account, email address, and address. You may also choose to share additional information, including shipping instructions, information about your social media accounts, a link to a wish list or other website of your choosing, personal interests, answers to exchange-specific questions, and shipping proof. If an exchange fails, we may provide an alternate match (a “rematcher”) with the information necessary to complete the exchange. Following the completion of an exchange, your gift exchange information is no longer viewable on Reddit Gifts by your match.
-
-Controlling Promotional Communications
-
-You may opt out of receiving promotional communications from us by following the instructions in those communications or by updating your email options in your account preferences here. If you opt out of promotional communications, we may still send you non-promotional communications, such as information about your account or use of Reddit Gifts.
-
-Deleting Your Account
-
-To delete your Reddit Gifts account, contact support through this form. When you delete your Reddit Gifts account, your profile is no longer visible to other users and disassociated from content you posted under that account. Please note, however, that the posts, photos, comments, and messages you submitted prior to deleting your account will still be visible to others unless you first delete the specific content. We may also retain certain information about you as required by law or for legitimate business purposes after you delete your account.
-
-If you would like to delete your Reddit account in addition to your Reddit Gifts account, please follow the process outlined in the Privacy Policy.
-
-Children
-
-People under the age of 18 are not allowed to create an account or otherwise use Reddit Gifts.
-
-Changes to This Notice
-
-We may change this Privacy Notice from time to time as described in Section 8 of the Reddit Gifts User Agreement. We encourage you to review this Privacy Notice and Reddit’s Privacy Policy whenever you access or use Reddit Gifts or otherwise interact with us to stay informed about our information practices and the ways you can help protect your privacy.
-
-Contact Us
-
-If you have questions about this Privacy Notice, you can contact us directly as described in the “Contact Us” section of Reddit’s Privacy Policy.
-
-Previous Versions
-Version 1
-
-Version 2 - September 2, 2016
+Found the internet!
+Trending today
+Joni Mitchell
+Joni Mitchell Says She’s Removing Her Music From Spotify in Solidarity With Neil Young
+r/entertainment and more
+MAUS
+‘Maus’ is an Amazon bestseller after Tennessee school ban – author Art Spiegelman compares board to Putin
+r/news and more
+Ashleigh Barty
+Ash Barty wins the Australian Open, the first Australian to win a Women’s Singles title since 1978 (via Twitter: @WTA)
+r/australia and more
+Covid
+Taiwan has produced a new chip device that is capable of detecting COVID-19 cases with a very low viral load, as well as those who are asymptomatic , in three minutes
+r/gadgets and more
+Kid Rock
+Kid Rock threatens to cancel any concert on his tour if there’s COVID-19 protocols
+r/news and more
+Russia
+Russia Sees Record Population Decline As Excess Deaths Hit 1M
+Popular posts
+Hot
+Everywhere
+New
+Top
+New Posts
+46.7k
+r/pics
+•Posted byu/jab116
+13 hours ago
+2
+2
+3
+& 134 More
+Join
+Today’s funeral turnout for murdered NYPD Officer Jason Rivera
+10.3k Comments
+Share
+Save
+5.6k
+r/AskReddit
+•Posted byu/Environmental-Fix-71
+13 hours ago
+2
+9
+3
+Join
+What's a movie you saw as a kid that only you seem to remember?
+9.1k Comments
+Share
+Save
+48.2k
+r/news
+•Posted byu/BeastofBurden
+10 hours ago
+2
+14
+19
+& 14 More
+Joni Mitchell Says She’s Removing Her Music From Spotify in Solidarity With Neil Young
+pitchfork.com/news/j...
+Join
+6.2k Comments
+Share
+Save
+Top livestream
+32.3k
+r/CasualUK
+•Posted byu/canspray5
+18 hours ago
+18
+15
+12
+Join
+Remember all those posts from Americans making fun of food at British football grounds? Turns out this is what they've been eating at American Football stadiums this whole time (Cincinnati Bengals)
+5.9k Comments
+Share
+Save
+52.8k
+r/movies
+•Posted byu/stoksyxl
+20 hours ago
+9
+19
+13
+Johnny Knoxville suffered brain damage after ‘Jackass Forever’ stunt
+News
+nme.com/news/f...
+Join
+5.1k Comments
+Share
+Save
+31.3k
+r/Music
+•Posted byu/ruelmoralesmusic
+11 hours ago
+6
+10
+& 4 More
+BREAKING: Joni Mitchell has followed Neil Young’s lead and removed her music from Spotify. "Irresponsible people are spreading lies that are costing people their lives. I stand in solidarity with Neil Young and the global scientific and medical communities on this issue."
+article
+consequence.net/2022/0...
+Join
+4.6k Comments
+Share
+Save
