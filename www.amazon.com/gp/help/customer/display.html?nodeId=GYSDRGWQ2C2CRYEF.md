@@ -18,6 +18,7 @@ We are members of numerous associations focused on protecting privacy and securi
 
 Amazon Information Request Reports
 
+July - December 2021 Report
 January - June 2021 Report
 July - December 2020 Report
 January - June 2020 Report
@@ -59,7 +60,6 @@ Amazon and Your Personal Information
 Interest-Based Ads
 EU-US Privacy Shield
 About Cookies
-Third Party Cookies
 California Supply Chain Transparency Act Statement
 Law Enforcement Information Requests
 Communications from Amazon.com
