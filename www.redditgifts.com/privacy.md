@@ -1,105 +1,115 @@
 Found the internet!
 Trending today
-Joni Mitchell
-Joni Mitchell Says She’s Removing Her Music From Spotify in Solidarity With Neil Young
-r/entertainment and more
-MAUS
-‘Maus’ is an Amazon bestseller after Tennessee school ban – author Art Spiegelman compares board to Putin
+Mike Pence
+Mike Pence breaks with Trump: "President Trump is wrong. I had no right to overturn the election. The presidency belongs to the American people, and the American people alone. Frankly there is almost no idea more un-American than the notion that any one person could choose the American president."
+r/LeopardsAteMyFace and more
+Coronavirus
+US death toll from COVID-19 hits 900,000, sped by omicron
 r/news and more
-Ashleigh Barty
-Ash Barty wins the Australian Open, the first Australian to win a Women’s Singles title since 1978 (via Twitter: @WTA)
-r/australia and more
-Covid
-Taiwan has produced a new chip device that is capable of detecting COVID-19 cases with a very low viral load, as well as those who are asymptomatic , in three minutes
-r/gadgets and more
-Kid Rock
-Kid Rock threatens to cancel any concert on his tour if there’s COVID-19 protocols
-r/news and more
-Russia
-Russia Sees Record Population Decline As Excess Deaths Hit 1M
+Winter Olympics
+Parents watching their daughters performance at Olympics
+r/MadeMeSmile and more
+Book Burning
+How Historians Will Remember This moment -- Book Burnings in TN
+r/lostgeneration and more
+Joe Rogan
+The Rock dumps Joe Rogan for being a racist piece of shit
+r/BlackPeopleTwitter and more
+Truck Convoy
+GoFundMe scuttles campaign for trucker convoy, stops release of $10-million in donations
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-46.7k
-r/pics
-•Posted byu/jab116
-13 hours ago
-2
-2
-3
-& 134 More
-Join
-Today’s funeral turnout for murdered NYPD Officer Jason Rivera
-10.3k Comments
-Share
-Save
-5.6k
+20.5k
 r/AskReddit
-•Posted byu/Environmental-Fix-71
-13 hours ago
-2
-9
-3
-Join
-What's a movie you saw as a kid that only you seem to remember?
-9.1k Comments
-Share
-Save
-48.2k
-r/news
-•Posted byu/BeastofBurden
-10 hours ago
-2
-14
-19
-& 14 More
-Joni Mitchell Says She’s Removing Her Music From Spotify in Solidarity With Neil Young
-pitchfork.com/news/j...
-Join
-6.2k Comments
-Share
-Save
-Top livestream
-32.3k
-r/CasualUK
-•Posted byu/canspray5
-18 hours ago
-18
-15
-12
-Join
-Remember all those posts from Americans making fun of food at British football grounds? Turns out this is what they've been eating at American Football stadiums this whole time (Cincinnati Bengals)
-5.9k Comments
-Share
-Save
-52.8k
-r/movies
-•Posted byu/stoksyxl
-20 hours ago
-9
-19
+•Posted byu/HisMajesticDickens
+8 hours ago
 13
-Johnny Knoxville suffered brain damage after ‘Jackass Forever’ stunt
-News
-nme.com/news/f...
+10
+14
 Join
+What is one socially unacceptable fact about yourself?
+nsfw
+12.8k Comments
+Share
+Save
+31.0k
+r/worldnews
+•Posted byu/kn05is
+12 hours ago
+2
+9
+& 24 More
+GoFundMe scuttles campaign for trucker convoy, stops release of $10-million in donations
+theglobeandmail.com/canada...
+Join
+5.4k Comments
+Share
+Save
+19.4k
+r/gaming
+•Posted byu/ClunarX
+11 hours ago
+6
+11
+5
+Join
+What’s your favorite video game city?
 5.1k Comments
 Share
 Save
-31.3k
-r/Music
-•Posted byu/ruelmoralesmusic
-11 hours ago
-6
-10
-& 4 More
-BREAKING: Joni Mitchell has followed Neil Young’s lead and removed her music from Spotify. "Irresponsible people are spreading lies that are costing people their lives. I stand in solidarity with Neil Young and the global scientific and medical communities on this issue."
-article
-consequence.net/2022/0...
+Top livestream
+34.4k
+r/mildlyinfuriating
+•Posted byu/ApricotTaco
+12 hours ago
+11
+12
+11
 Join
-4.6k Comments
+Uber eats leaving the order at the end of the driveway in the freezing rain/snow balanced on the mailbox
+3.8k Comments
+Share
+Save
+32.1k
+r/MadeMeSmile
+•Posted byu/My_Memes_Will_Cure_U
+4 hours ago
+41
+47
+30
+& 2 More
+Join
+How deaf people celebrate the birthday
+ Wholesome Moments 
+408 Comments
+Share
+Save
+57.3k
+r/todayilearned
+•Posted byu/Movie_Advance_101
+17 hours ago
+7
+6
+2
+2
+TIL in 2012 wanting a dad was the tenth highest requested Christmas gift by children in the UK.
+theworld.org/storie...
+Join
+1.4k Comments
+Share
+Save
+4.5k
+r/canada
+•Posted byu/The______Wizrd
+13 hours ago
+Trump calls Trudeau “far left lunatic” as siege continues in Ottawa
+Trump
+politico.com/news/2...
+Join
+1.5k Comments
 Share
 Save
