@@ -1,103 +1,107 @@
 Found the internet!
 Trending today
-Ukraine
-US to evacuate Ukraine embassy amid Russian invasion fears
-Ben Simmons
-[Neubeck] Embiid says it’s disappointing that all the winning he and Simmons were able to do became secondary. “It’s unfortunate that I guess having his own team and being a star was more important.”
-r/sixers and more
-James Webb Telescope
-James Webb took a selfie, as one of the first released pictures.
-r/spaceporn and more
-Trump Documents
-Republicans Who Railed About Clinton Emails Are Quiet on Trump’s Records
+Studies
+‘Staggering’ study reveals 46% of unemployed U.S. men have criminal convictions | Employers should “rethink” using criminal histories in hiring decisions, researchers say
+r/science and more
+Movies
+I found the spot from this scene in the movie Gladiator while driving around Tuscany, Italy. [OC]
+r/pics and more
+Trump
+Trump records retrieved from Mar-A-Lago contained classified information, Justice Department confirms
 r/politics and more
-Drawing
-Drawing Mike Trout every day until the lockout is over. Day 70.
-r/baseball and more
-Lost Ark
-HAchubby plays Lost Ark OST perfectly after listening once
-r/LivestreamFail and more
+Storms
+Na de storm, fiets uitgraven dan maar
+r/thenetherlands and more
+Truck Convoy
+Freedom Convoy leader Pat King arrested live on social media.
+r/news and more
+Ukraine
+Biden says he's now “convinced” Putin has decided to invade Ukraine, citing United States’ “significant intelligence capabilities”
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-1.7k
-Today @ 6:30AM
+3.6k
 PINNED BY MODERATORS
-r/Cricket
-•Posted byu/StackOverflowIsBible
-9 hours ago
-21
+r/millionairemakers
+•Posted byu/MakerOfMillionaires
+15 hours ago
+26
+17
 20
-21
-& 3 More
 Join
-IPL 2022 AUCTION MEGATHREAD
-Megathread
-36.1k Comments
+[Entry Thread #75] It’s loving season, but not all of us have lovers. To make up for it, we’re making a millionaire out of the entries, so leave a comment to enter!
+Entry Thread
+28.3k Comments
 Share
 Save
-8.4k
+53.6k
+r/worldnews
+•Posted byu/Mean-Juggernaut1560
+15 hours ago
+5
+16
+8
+Biden says he's now “convinced” Putin has decided to invade Ukraine, citing United States’ “significant intelligence capabilities”
+Russia/Ukraine
+cnn.com/2022/0...
+Join
+9.2k Comments
+Share
+Save
+20.2k
 r/AskReddit
-•Posted byu/StocktorDrange
-14 hours ago
+•Posted byu/xk543x
+15 hours ago
+29
+15
+17
+Join
+What are some unspoken rules of sex?
+nsfw
+7.5k Comments
+Share
+Save
+10.4k
+r/dankmemes
+•Posted byu/marzak12
+2 hours ago
+3
 4
 5
-2
+5
 Join
-What is a universally beloved film that you hate?
-11.4k Comments
-Share
-Save
-20.1k
-r/worldnews
-•Posted byu/NorthernStarLord
-17 hours ago
-2
-& 20 More
-Trudeau warns of 'severe consequences' for anti-vaccine mandate protesters who don't stand down | CBC News
-COVID-19
-cbc.ca/news/p...
-Join
-4.0k Comments
+🗿🗿🗿🗿
+it's pronounced gif
+179 Comments
 Share
 Save
 Top livestream
-5.2k
-r/gaming
-•Posted byu/Significant_Cry7002
-5 hours ago
-6
-4
+54.3k
+r/technology
+•Posted byu/samplestiltskin_
+14 hours ago
+20
+& 56 More
+Zuckerberg Has Burned $500 Billion Turning Facebook to Meta
+Business
+nymag.com/intell...
 Join
-What is the first controller you ever held?
-3.8k Comments
+5.0k Comments
 Share
 Save
-17.9k
-r/funny
-•Posted byu/Bakica_original
-5 hours ago
-6
-9
+15.4k
+r/interestingasfuck
+•Posted byu/BerthjeTTV
+4 hours ago
 5
+2
+3
 Join
-Blue waffles. My kid insisted.
-nsfw
-899 Comments
-Share
-Save
-51.6k
-r/WhitePeopleTwitter
-•Posted byu/Aziz1428
-11 hours ago
-13
-9
-8
-Join
-Over a decade later and not much has changed.
-2.7k Comments
+Difference of interior - Chinese TIANGONG Space Station vs International Space Station
+/r/ALL
+1.4k Comments
 Share
 Save
