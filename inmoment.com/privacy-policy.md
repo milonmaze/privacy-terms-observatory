@@ -291,17 +291,17 @@ Drag to view
 To search this site, enter a search term
 LATEST NEWS
 
-PRESS RELEASE | MAY 11, 2021
+PRESS RELEASE | FEBRUARY 1, 2022
 
-InMoment Named a Leader in Customer Feedback Management by Independent Research Firm, Highest Score Possible in Driving Revenue, Product Vision and Strategy Criteria
+InMoment Further Extends AI-Powered Technologies to Advance Experience Improvement
 Continue Reading
 
-PRESS RELEASE | APRIL 28, 2021
+PRESS RELEASE | DECEMBER 9, 2021
 
-InMoment Appoints Ashley Goode as Business Unit Leader to Accelerate Experience Improvement for the World’s Top Financial Services Brands
+InMoment Ranked in Top 50 Insights & Analytics Report by the Insights Association
 Continue Reading
 
-PRESS RELEASE | APRIL 20, 2021
+PRESS RELEASE | SEPTEMBER 9, 2021
 
-InMoment Ranks as Leader in G2 Grid Report for Feedback Analytics Software
+InMoment Completes Acquisition of Lexalytics, the Leader and Pioneer of Structured and Unstructured Data Analytics
 Continue Reading
