@@ -1,107 +1,109 @@
 Found the internet!
 Trending today
-Studies
-‘Staggering’ study reveals 46% of unemployed U.S. men have criminal convictions | Employers should “rethink” using criminal histories in hiring decisions, researchers say
-r/science and more
-Movies
-I found the spot from this scene in the movie Gladiator while driving around Tuscany, Italy. [OC]
-r/pics and more
-Trump
-Trump records retrieved from Mar-A-Lago contained classified information, Justice Department confirms
-r/politics and more
-Storms
-Na de storm, fiets uitgraven dan maar
-r/thenetherlands and more
-Truck Convoy
-Freedom Convoy leader Pat King arrested live on social media.
+Anonymous
+Anonymous message to Vladimir Putin.
+r/nextfuckinglevel and more
+Starbucks Union
+BREAKING: Starbucks workers in Mesa, AZ have WON their union election 25-3. The store becomes the 3rd unionized Starbucks in the country after overcoming extreme union-busting to win a blowout victory.
+r/antiwork and more
+Russia Sanctions
+Swiss Freeze Bank Accounts of Russians on EU Sanctions List
+James Harden
+[Adam Aaronson] James Harden has tied Ben Simmons on the Sixers all-time three-pointers made list.
+r/sixers and more
+Capitol Riot
+Capitol rioter photographed with Pelosi's podium on Jan. 6 sentenced to prison
 r/news and more
 Ukraine
-Biden says he's now “convinced” Putin has decided to invade Ukraine, citing United States’ “significant intelligence capabilities”
+Russian tank runs out of Fuel, gets stuck on Highway. Driver offers to take the soldiers back to russia. Everyone laughs. Driver tells them that Ukraine is winning, russian forces are surrendering and implies they should surrender aswell.
+r/nextfuckinglevel and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-3.6k
-PINNED BY MODERATORS
-r/millionairemakers
-•Posted byu/MakerOfMillionaires
-15 hours ago
-26
-17
-20
-Join
-[Entry Thread #75] It’s loving season, but not all of us have lovers. To make up for it, we’re making a millionaire out of the entries, so leave a comment to enter!
-Entry Thread
-28.3k Comments
-Share
-Save
-53.6k
+143k
 r/worldnews
-•Posted byu/Mean-Juggernaut1560
-15 hours ago
-5
-16
-8
-Biden says he's now “convinced” Putin has decided to invade Ukraine, citing United States’ “significant intelligence capabilities”
-Russia/Ukraine
-cnn.com/2022/0...
+•Posted byu/CyberArtillery
+9 hours ago
+2
+7
+7
+& 447 More
+Rejecting US evacuation offer, Zelensky says I need anti-tank ammo, 'not a ride'
+timesofisrael.com/livebl...
 Join
-9.2k Comments
+7.2k Comments
 Share
 Save
-20.2k
+11.7k
 r/AskReddit
-•Posted byu/xk543x
-15 hours ago
-29
-15
-17
+•Posted byu/Melon-Kolly
+7 hours ago
+7
+9
+& 9 More
 Join
-What are some unspoken rules of sex?
-nsfw
-7.5k Comments
+What are some common signs that someone grew up with sh*tty parents?
+4.0k Comments
 Share
 Save
-10.4k
-r/dankmemes
-•Posted byu/marzak12
-2 hours ago
-3
-4
+25.9k
+r/worldnews
+•Posted byu/Medium-Mirror9118
+4 hours ago
+6
 5
 5
+Poland refuses to play Russia in 2022 World Cup play-off game
+Russia/Ukraine
+bbc.co.uk/sport/...
 Join
-🗿🗿🗿🗿
-it's pronounced gif
-179 Comments
+1.1k Comments
 Share
 Save
 Top livestream
-54.3k
-r/technology
-•Posted byu/samplestiltskin_
-14 hours ago
-20
-& 56 More
-Zuckerberg Has Burned $500 Billion Turning Facebook to Meta
-Business
-nymag.com/intell...
+122k
+r/MurderedByWords
+•Posted byu/beerbellybegone
+18 hours ago
+7
+2
+& 173 More
 Join
-5.0k Comments
+Louder with Dumbass
+SEE FULL IMAGE
+3.9k Comments
 Share
 Save
-15.4k
+29.7k
+r/TrueOffMyChest
+•Posted byu/Mindless_Cow_9346
+13 hours ago
+9
+9
+11
+& 2 More
+Join
+Kinda feel violated by my GF
+
+I'm 37(m) and I kinda feel like my gf violates me sexually. When we get in arguments her way of getting out of it is to initiating sexual activities. It has been getting worse and worse lately. We have been saving for a house for the last 6 months because I'm over this renting business. This morning I noticed a charge from Gucci on our joint credit card for $863 bucks. Apparently, a clutch was more important than our future family home. When I confronted her she began to grope me in an attempt to change the conversation. I informed her that I am withdrawing consent at the moment because I really wanted to talk. She continued to push forward with unwelcomed sexual touches. I know this sounds crazy coming from a man but it makes me feel cheap and violated.
+
+3.4k Comments
+Share
+Save
+51.3k
 r/interestingasfuck
-•Posted byu/BerthjeTTV
-4 hours ago
-5
-2
+•Posted byu/fjfl
+5 hours ago
+13
+17
+14
 3
 Join
-Difference of interior - Chinese TIANGONG Space Station vs International Space Station
+In Kiev a guy just kept is normal routine and went for a bike ride surrounded by tanks.
 /r/ALL
-1.4k Comments
+1.0k Comments
 Share
 Save
