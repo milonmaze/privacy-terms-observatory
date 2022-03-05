@@ -1,109 +1,103 @@
 Found the internet!
 Trending today
-Anonymous
-Anonymous message to Vladimir Putin.
-r/nextfuckinglevel and more
-Starbucks Union
-BREAKING: Starbucks workers in Mesa, AZ have WON their union election 25-3. The store becomes the 3rd unionized Starbucks in the country after overcoming extreme union-busting to win a blowout victory.
-r/antiwork and more
-Russia Sanctions
-Swiss Freeze Bank Accounts of Russians on EU Sanctions List
-James Harden
-[Adam Aaronson] James Harden has tied Ben Simmons on the Sixers all-time three-pointers made list.
-r/sixers and more
-Capitol Riot
-Capitol rioter photographed with Pelosi's podium on Jan. 6 sentenced to prison
-r/news and more
+NATO
+Former National Security Advisor John Bolton says 'Putin was waiting' for Trump to withdraw the United States from NATO in his second term
+r/politics and more
+Nikita Mazepin
+[Chris Medland] BREAKING: Nikita Mazepin has been dropped by Haas
+r/formula1 and more
+Trump
+Former National Security Advisor John Bolton says 'Putin was waiting' for Trump to withdraw the United States from NATO in his second term
+r/politics and more
+Animations
+Mouth-watering animation of San Xian noodles from flavors of youth
+r/anime and more
 Ukraine
-Russian tank runs out of Fuel, gets stuck on Highway. Driver offers to take the soldiers back to russia. Everyone laughs. Driver tells them that Ukraine is winning, russian forces are surrendering and implies they should surrender aswell.
-r/nextfuckinglevel and more
+Tens of thousands of Serbs rallied in support of Putin and Russia’s war in Ukraine. This is the biggest Pro-Russia rally in the whole world. Shame on you Belgrade and Serbia
+r/interestingasfuck and more
+PayPal
+PayPal shuts down its services in Russia citing Ukraine aggression
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-143k
-r/worldnews
-•Posted byu/CyberArtillery
-9 hours ago
-2
-7
-7
-& 447 More
-Rejecting US evacuation offer, Zelensky says I need anti-tank ammo, 'not a ride'
-timesofisrael.com/livebl...
-Join
-7.2k Comments
-Share
-Save
-11.7k
+17.5k
 r/AskReddit
-•Posted byu/Melon-Kolly
-7 hours ago
-7
-9
-& 9 More
+•Posted byu/corkscream
+15 hours ago
+8
+8
+5
 Join
-What are some common signs that someone grew up with sh*tty parents?
-4.0k Comments
+Non-picky eaters, what’s one food you absolutely can’t get behind?
+13.7k Comments
 Share
 Save
-25.9k
-r/worldnews
-•Posted byu/Medium-Mirror9118
-4 hours ago
-6
-5
-5
-Poland refuses to play Russia in 2022 World Cup play-off game
-Russia/Ukraine
-bbc.co.uk/sport/...
+28.3k
+r/gaming
+•Posted byu/RD-archived
+15 hours ago
+12
+12
+8
 Join
-1.1k Comments
+What’s a game everyone NEEDS to play in their lifetime?
+7.9k Comments
+Share
+Save
+52.8k
+r/nextfuckinglevel
+•Posted byu/Did-ko
+4 hours ago
+21
+18
+& 30 More
+Join
+Don't mind me, while I'll just raise the Ukrainian flag over the moving russian column.
+0:00
+0:19
+945 Comments
 Share
 Save
 Top livestream
-122k
-r/MurderedByWords
-•Posted byu/beerbellybegone
-18 hours ago
-7
-2
-& 173 More
-Join
-Louder with Dumbass
-SEE FULL IMAGE
-3.9k Comments
-Share
-Save
-29.7k
+26.9k
 r/TrueOffMyChest
-•Posted byu/Mindless_Cow_9346
-13 hours ago
+•Posted byu/Used-Block9719
+15 hours ago
+7
 9
-9
-11
-& 2 More
+& 6 More
 Join
-Kinda feel violated by my GF
+My husband peed on my wedding dress the night of our wedding.
 
-I'm 37(m) and I kinda feel like my gf violates me sexually. When we get in arguments her way of getting out of it is to initiating sexual activities. It has been getting worse and worse lately. We have been saving for a house for the last 6 months because I'm over this renting business. This morning I noticed a charge from Gucci on our joint credit card for $863 bucks. Apparently, a clutch was more important than our future family home. When I confronted her she began to grope me in an attempt to change the conversation. I informed her that I am withdrawing consent at the moment because I really wanted to talk. She continued to push forward with unwelcomed sexual touches. I know this sounds crazy coming from a man but it makes me feel cheap and violated.
+I still have no idea wtf is going on in his head to think that this was "nothing" or "no big deal", He literally peed on my wedding dress the night of our wedding, INSIDE the hotel room. I yelled at him WTF constantly and he nonchantly said that he was just "marking his territory" and went on about how he's been wanting to do this when he gets married and that he didn't tell me because he was positively 100% sure I'd get mad at him but he said it's worth it since he got to do it. I couldn't believe it but he assured me that pee washes off easily and I shouldn't worry but I was just so mad and disgusted vy what he's done. He acted like nothing happened and was actually expecting sex but I told him off. I just can't get rid of the awful feeling and sight, I couldn't even sleep in the bed with him after that.
 
-3.4k Comments
+4.3k Comments
 Share
 Save
-51.3k
-r/interestingasfuck
-•Posted byu/fjfl
-5 hours ago
-13
-17
-14
-3
+17.9k
+r/Damnthatsinteresting
+•Posted byu/RagingZefBoner69
+3 hours ago
+7
+6
+10
 Join
-In Kiev a guy just kept is normal routine and went for a bike ride surrounded by tanks.
-/r/ALL
-1.0k Comments
+Riding the tiniest bike
+Video
+250 Comments
+Share
+Save
+16.8k
+r/europe
+•Posted byu/nuke_berlin
+17 hours ago
+Russian troops are raping 'numerous' women in Ukraine, foreign minister says
+Claims by Ukrainensfw
+mirror.co.uk/news/p...
+Join
+1.4k Comments
 Share
 Save
