@@ -1,103 +1,87 @@
 Found the internet!
 Trending today
-NATO
-Former National Security Advisor John Bolton says 'Putin was waiting' for Trump to withdraw the United States from NATO in his second term
-r/politics and more
-Nikita Mazepin
-[Chris Medland] BREAKING: Nikita Mazepin has been dropped by Haas
-r/formula1 and more
-Trump
-Former National Security Advisor John Bolton says 'Putin was waiting' for Trump to withdraw the United States from NATO in his second term
-r/politics and more
-Animations
-Mouth-watering animation of San Xian noodles from flavors of youth
-r/anime and more
+Gregg Popovich
+The San Antonio Spurs celebrate Coach Gregg Popovich's historic achievement in the locker room
+r/nba and more
 Ukraine
-Tens of thousands of Serbs rallied in support of Putin and Russia’s war in Ukraine. This is the biggest Pro-Russia rally in the whole world. Shame on you Belgrade and Serbia
-r/interestingasfuck and more
-PayPal
-PayPal shuts down its services in Russia citing Ukraine aggression
+Russia accuses Ukraine of recruiting mercenaries in South Africa, claims it is violation of International Law
+Art
+Mom and kid Giraffe, me, soft clay, 2022
+r/Art and more
+COVID-19
+Republicans Will, Eventually, Pivot to the Position That Zelensky Is a Secret Sex Criminal Who Invented COVID
+r/politics and more
+Deutsche Bank
+Deutsche Bank reverses after criticism, will withdraw from Russia
+Belarus
+Belarus may be preparing to invade Ukraine
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-17.5k
+2.2k
 r/AskReddit
-•Posted byu/corkscream
-15 hours ago
-8
-8
-5
+•Posted byu/AnnaSophiaHubby
+5 hours ago
+2
 Join
-Non-picky eaters, what’s one food you absolutely can’t get behind?
-13.7k Comments
+Don't say your age, but could you identify your age by saying your favorite toy or TV show?
+4.6k Comments
 Share
 Save
-28.3k
-r/gaming
-•Posted byu/RD-archived
-15 hours ago
-12
-12
-8
+11.0k
+r/youseeingthisshit
+•Posted byu/purple-circle
+2 hours ago
 Join
-What’s a game everyone NEEDS to play in their lifetime?
-7.9k Comments
-Share
-Save
-52.8k
-r/nextfuckinglevel
-•Posted byu/Did-ko
-4 hours ago
-21
-18
-& 30 More
-Join
-Don't mind me, while I'll just raise the Ukrainian flag over the moving russian column.
+The whole gym stops to watch
+Human
 0:00
-0:19
-945 Comments
+0:30
+290 Comments
+Share
+Save
+20.1k
+r/Eldenring
+•Posted byu/Weebfromkonoha
+10 hours ago
+8
+12
+7
+Join
+I think I’m done for tonight….
+Humor
+3.3k Comments
 Share
 Save
 Top livestream
-26.9k
-r/TrueOffMyChest
-•Posted byu/Used-Block9719
-15 hours ago
-7
-9
-& 6 More
+42.9k
+r/worldnews
+•Posted byu/lollipopscute
+11 hours ago
+2
+3
+3
+US official warns Israel: ‘Don’t be last haven for dirty money fueling Putin’s war’
+Russia/Ukraine
+timesofisrael.com/us-off...
 Join
-My husband peed on my wedding dress the night of our wedding.
-
-I still have no idea wtf is going on in his head to think that this was "nothing" or "no big deal", He literally peed on my wedding dress the night of our wedding, INSIDE the hotel room. I yelled at him WTF constantly and he nonchantly said that he was just "marking his territory" and went on about how he's been wanting to do this when he gets married and that he didn't tell me because he was positively 100% sure I'd get mad at him but he said it's worth it since he got to do it. I couldn't believe it but he assured me that pee washes off easily and I shouldn't worry but I was just so mad and disgusted vy what he's done. He acted like nothing happened and was actually expecting sex but I told him off. I just can't get rid of the awful feeling and sight, I couldn't even sleep in the bed with him after that.
-
-4.3k Comments
+3.1k Comments
 Share
 Save
-17.9k
-r/Damnthatsinteresting
-•Posted byu/RagingZefBoner69
-3 hours ago
-7
+47.9k
+r/technicallythetruth
+•Posted byu/anshj21
+5 hours ago
+2
 6
-10
+7
+& 3 More
 Join
-Riding the tiniest bike
-Video
-250 Comments
-Share
-Save
-16.8k
-r/europe
-•Posted byu/nuke_berlin
-17 hours ago
-Russian troops are raping 'numerous' women in Ukraine, foreign minister says
-Claims by Ukrainensfw
-mirror.co.uk/news/p...
-Join
-1.4k Comments
+Nobody knows such a person
+TTT approved!
+410 Comments
 Share
 Save
