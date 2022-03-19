@@ -1,87 +1,100 @@
 Found the internet!
 Trending today
-Gregg Popovich
-The San Antonio Spurs celebrate Coach Gregg Popovich's historic achievement in the locker room
-r/nba and more
-Ukraine
-Russia accuses Ukraine of recruiting mercenaries in South Africa, claims it is violation of International Law
+NATO
+7 NATO Countries Now Support A Peacekeeping Mission In Ukraine
+r/ukraine and more
+Bahrain Grand Prix
+Lewis arrives at the Bahrain circuit today
+r/formula1 and more
 Art
-Mom and kid Giraffe, me, soft clay, 2022
-r/Art and more
-COVID-19
-Republicans Will, Eventually, Pivot to the Position That Zelensky Is a Secret Sex Criminal Who Invented COVID
-r/politics and more
-Deutsche Bank
-Deutsche Bank reverses after criticism, will withdraw from Russia
-Belarus
-Belarus may be preparing to invade Ukraine
+[ART] Putting on some gloves (A Cute Girlfriend)
+r/manga and more
+Ukraine
+Russia-Ukraine war: Moscow to propose 10-year ban on foreign companies that don't return by May 1
+Arnold Schwarzenegger
+Ukraine: Arnold Schwarzenegger's anti-war video trends on Russian social media
+r/news and more
+China
+China Indicates to Biden it Won’t Send Weapons to Russia
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-2.2k
+14.4k
+r/gifs
+•Posted byu/GGezpzMuppy
+3 hours ago
+2
+7
+3
+I might have only one job, but I’m gonna be the best at it!
+i.imgur.com/5Zs8Ns...
+Join
+328 Comments
+Share
+Save
+9.7k
 r/AskReddit
-•Posted byu/AnnaSophiaHubby
-5 hours ago
+•Posted byu/Snoo26837
+15 hours ago
+5
 2
 Join
-Don't say your age, but could you identify your age by saying your favorite toy or TV show?
-4.6k Comments
+Without saying your country, what's the mythical beast in your culture?
+11.5k Comments
 Share
 Save
-11.0k
-r/youseeingthisshit
-•Posted byu/purple-circle
-2 hours ago
+40.9k
+r/pics
+•Posted byu/ROIDxRAGE
+15 hours ago
+& 11 More
 Join
-The whole gym stops to watch
-Human
-0:00
-0:30
-290 Comments
-Share
-Save
-20.1k
-r/Eldenring
-•Posted byu/Weebfromkonoha
-10 hours ago
-8
-12
-7
-Join
-I think I’m done for tonight….
-Humor
-3.3k Comments
+[OC] Guess this guy doesn't like Biden.
+Politics
+i.imgur.com/nRGh82...
+6.4k Comments
 Share
 Save
 Top livestream
-42.9k
+4.5k
+r/Browns
+•Posted byu/CD23tol
+18 hours ago
+2
+& 8 More
+Deshaun Watson plans to waive his no-trade clause to the #Browns, sources tell me and @TomPelissero . Yes, the Browns!! Trade compensation still to be finalized with the #Texans, but Watson has made his choice: He expects to go to Cleveland.
+Watson and a 5th for 3-1sts a 3rd and 4th
+twitter.com/RapShe...
+Join
+4.8k Comments
+Share
+Save
+46.2k
 r/worldnews
-•Posted byu/lollipopscute
-11 hours ago
+•Posted byu/Y_122
+6 hours ago
 2
 3
-3
-US official warns Israel: ‘Don’t be last haven for dirty money fueling Putin’s war’
-Russia/Ukraine
-timesofisrael.com/us-off...
-Join
-3.1k Comments
-Share
-Save
-47.9k
-r/technicallythetruth
-•Posted byu/anshj21
-5 hours ago
-2
 6
-7
-& 3 More
+Russia-Ukraine war: Moscow to propose 10-year ban on foreign companies that don't return by May 1
+Russia/Ukraine
+msn.com/en-in/...
 Join
-Nobody knows such a person
-TTT approved!
-410 Comments
+4.4k Comments
 Share
 Save
+14.1k
+r/interestingasfuck
+•Posted byu/TwasAnChild
+3 hours ago
+2
+Join
+The "1862 Mouse Killer" mouse trap.
+/r/ALL
+297 Comments
+Share
+Save
+Advertisement
