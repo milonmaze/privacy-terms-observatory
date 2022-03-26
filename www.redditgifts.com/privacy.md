@@ -1,100 +1,71 @@
 Found the internet!
 Trending today
-NATO
-7 NATO Countries Now Support A Peacekeeping Mission In Ukraine
-r/ukraine and more
-Bahrain Grand Prix
-Lewis arrives at the Bahrain circuit today
-r/formula1 and more
-Art
-[ART] Putting on some gloves (A Cute Girlfriend)
-r/manga and more
-Ukraine
-Russia-Ukraine war: Moscow to propose 10-year ban on foreign companies that don't return by May 1
-Arnold Schwarzenegger
-Ukraine: Arnold Schwarzenegger's anti-war video trends on Russian social media
+Taylor Hawkiins
+Taylor Hawkins, Foo Fighters drummer, dead at 50
 r/news and more
-China
-China Indicates to Biden it Won’t Send Weapons to Russia
+Ukraine
+Ukraine will not give up territory as the price of peace, says Zelensky
+Bernie Sanders
+Bernie Sanders wants a 95% tax on big corporations' pandemic-era profits to bring down rising prices
+r/politics and more
+Russia
+Russia starts military drill on disputed islands off Japan
+Saint Peter's
+15-seeded Saint Peter's defeats #3 seed Purdue, becomes the first 15-seed in NCAA Tournament history to reach the Elite 8
+r/sports and more
+Aramco Oil
+[Sara Esposito] The point is not that the Saudi Arabian GP should be cancelled, but rather that it should have never been approved in the first place given the situation. Not only the GP is under threat due to its association with Aramco, the target today, but it threatens the city itself.
+r/formula1 and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-14.4k
-r/gifs
-•Posted byu/GGezpzMuppy
+16.4k
+r/formula1
+•Posted byu/bennyboy599
 3 hours ago
-2
-7
-3
-I might have only one job, but I’m gonna be the best at it!
-i.imgur.com/5Zs8Ns...
+& 2 More
 Join
-328 Comments
+Appalling tweets from one of this weekend’s fire marshalls
+:post-social-media: Social Media /r/all
+459 Comments
 Share
 Save
-9.7k
+14.7k
 r/AskReddit
-•Posted byu/Snoo26837
-15 hours ago
-5
-2
+•Posted byu/ej1273
+10 hours ago
+11
+10
+7
 Join
-Without saying your country, what's the mythical beast in your culture?
-11.5k Comments
+Women of Reddit, what’s something every girl should know but is rarely taught?
+6.1k Comments
 Share
 Save
-40.9k
-r/pics
-•Posted byu/ROIDxRAGE
-15 hours ago
-& 11 More
+31.7k
+r/dankmemes
+•Posted byu/somnum_osseus
+5 hours ago
+4
+3
+7
 Join
-[OC] Guess this guy doesn't like Biden.
-Politics
-i.imgur.com/nRGh82...
-6.4k Comments
+Every damn time
+it's pronounced gif
+682 Comments
 Share
 Save
 Top livestream
-4.5k
-r/Browns
-•Posted byu/CD23tol
-18 hours ago
-2
-& 8 More
-Deshaun Watson plans to waive his no-trade clause to the #Browns, sources tell me and @TomPelissero . Yes, the Browns!! Trade compensation still to be finalized with the #Texans, but Watson has made his choice: He expects to go to Cleveland.
-Watson and a 5th for 3-1sts a 3rd and 4th
-twitter.com/RapShe...
+11.5k
+r/Tinder
+•Posted byu/littleweed01
+4 hours ago
 Join
-4.8k Comments
-Share
-Save
-46.2k
-r/worldnews
-•Posted byu/Y_122
-6 hours ago
-2
-3
-6
-Russia-Ukraine war: Moscow to propose 10-year ban on foreign companies that don't return by May 1
-Russia/Ukraine
-msn.com/en-in/...
-Join
-4.4k Comments
-Share
-Save
-14.1k
-r/interestingasfuck
-•Posted byu/TwasAnChild
-3 hours ago
-2
-Join
-The "1862 Mouse Killer" mouse trap.
-/r/ALL
-297 Comments
+Lord 🤣
+525 Comments
 Share
 Save
 Advertisement
