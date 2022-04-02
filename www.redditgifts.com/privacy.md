@@ -1,71 +1,104 @@
 Found the internet!
 Trending today
-Taylor Hawkiins
-Taylor Hawkins, Foo Fighters drummer, dead at 50
+r/place
+12 hours of r/Place in 12 seconds
+r/place and more
+April Fools'
+Jimmy Kimmel, Jimmy Fallon Swap Late Night Shows for April Fools’ Day
+r/television and more
+Amazon Union
+Just take a moment to appreciate Christian Smalls and his fight to unionize Amazon a true hero for the working class
+r/antiwork and more
+Will Smith
+“Heartbroken” Will Smith Resigns From Academy Ahead Of Decision On His Future After Oscar Slap Of Chris Rock
 r/news and more
-Ukraine
-Ukraine will not give up territory as the price of peace, says Zelensky
-Bernie Sanders
-Bernie Sanders wants a 95% tax on big corporations' pandemic-era profits to bring down rising prices
-r/politics and more
-Russia
-Russia starts military drill on disputed islands off Japan
-Saint Peter's
-15-seeded Saint Peter's defeats #3 seed Purdue, becomes the first 15-seed in NCAA Tournament history to reach the Elite 8
-r/sports and more
-Aramco Oil
-[Sara Esposito] The point is not that the Saudi Arabian GP should be cancelled, but rather that it should have never been approved in the first place given the situation. Not only the GP is under threat due to its association with Aramco, the target today, but it threatens the city itself.
-r/formula1 and more
+World Cup
+World Cup 2022 group stage by Japanese artist @junseichida
+r/soccer and more
+Marijuana Decriminalisation
+House passes bill to federally decriminalize marijuana
+r/UpliftingNews and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-16.4k
-r/formula1
-•Posted byu/bennyboy599
-3 hours ago
-& 2 More
-Join
-Appalling tweets from one of this weekend’s fire marshalls
-:post-social-media: Social Media /r/all
-459 Comments
-Share
-Save
-14.7k
-r/AskReddit
-•Posted byu/ej1273
-10 hours ago
-11
-10
-7
-Join
-Women of Reddit, what’s something every girl should know but is rarely taught?
-6.1k Comments
-Share
-Save
-31.7k
-r/dankmemes
-•Posted byu/somnum_osseus
-5 hours ago
+32.7k
+r/news
+•Posted by
+u/MarvelsGrantMan136
+15 hours ago
+5
 4
-3
-7
+“Heartbroken” Will Smith Resigns From Academy Ahead Of Decision On His Future After Oscar Slap Of Chris Rock
+deadline.com/2022/0...
 Join
-Every damn time
-it's pronounced gif
-682 Comments
+5.8k Comments
+Share
+Save
+21.9k
+r/gaming
+•Posted by
+u/AmberlyHalcomb
+4 hours ago
+2
+2
+3 round burst sucks they said.
+gfycat.com/impert...
+Join
+249 Comments
+Share
+Save
+14.2k
+r/AskReddit
+•Posted by
+u/fitboy15
+15 hours ago
+6
+3
+Join
+what situation is completely different if you have an erection?
+nsfw
+6.5k Comments
+Share
+Save
+18.4k
+r/WhitePeopleTwitter
+•Posted by
+u/jueoiw
+4 hours ago
+Join
+23 minutes is a hike?
+imgur.com/tJlLXV...
+897 Comments
 Share
 Save
 Top livestream
-11.5k
-r/Tinder
-•Posted byu/littleweed01
-4 hours ago
+26.7k
+r/movies
+•Posted by
+u/MarvelsGrantMan136
+15 hours ago
+7
+3
+3
+Will Smith Resigns From Academy Over Chris Rock Oscars Slap
+News
+variety.com/2022/f...
 Join
-Lord 🤣
-525 Comments
+4.4k Comments
+Share
+Save
+16.1k
+r/place
+•Posted by
+u/baked-potato_42
+3 hours ago
+2
+Join
+This is just peak germany.
+130 Comments
 Share
 Save
 Advertisement
