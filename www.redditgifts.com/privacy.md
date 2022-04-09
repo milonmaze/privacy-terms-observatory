@@ -1,104 +1,78 @@
 Found the internet!
 Trending today
-r/place
-12 hours of r/Place in 12 seconds
-r/place and more
-April Fools'
-Jimmy Kimmel, Jimmy Fallon Swap Late Night Shows for April Fools’ Day
-r/television and more
-Amazon Union
-Just take a moment to appreciate Christian Smalls and his fight to unionize Amazon a true hero for the working class
-r/antiwork and more
+Marine Le Pen
+Le Pen against sanctions on Russia over French interests
+Trump
+Trump Jr. accused of 'treason' after pre-Jan. 6 texts to Meadows revealed
+r/politics and more
+LEGO
+Found a fun little detail in the new LEGO game, If you idle with Anakin for a while he pulls out a red light saber instead of a blue one, little easter egg foreshadowing his inevitable crossing to the dark side haha
+r/StarWars and more
+Ukraine
+After long time with no connection to the outside world, people from the liberated territories of Ukraine have ability to call their family thanks to Starlink [subbed]
+r/ukraine and more
 Will Smith
-“Heartbroken” Will Smith Resigns From Academy Ahead Of Decision On His Future After Oscar Slap Of Chris Rock
+Actor Will Smith banned from attending Oscars for 10 years
 r/news and more
-World Cup
-World Cup 2022 group stage by Japanese artist @junseichida
-r/soccer and more
-Marijuana Decriminalisation
-House passes bill to federally decriminalize marijuana
-r/UpliftingNews and more
+Slovakia
+Slovakia sends its entire S-300 surface-to-air missile system to Ukraine. Slovakia recently received the American Patriot missile system from Germany and the Netherlands.
+r/UkrainianConflict and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-32.7k
-r/news
+9.7k
+r/worldnews
 •Posted by
-u/MarvelsGrantMan136
-15 hours ago
-5
-4
-“Heartbroken” Will Smith Resigns From Academy Ahead Of Decision On His Future After Oscar Slap Of Chris Rock
-deadline.com/2022/0...
+u/yurient
+2 hours ago
+Russia to fast-track adoptions of Ukrainian children 'forcibly deported' after their parents were killed by Putin's troops, authorities say
+Russia/Ukraine
+businessinsider.com/russia...
 Join
-5.8k Comments
+617 Comments
 Share
 Save
-21.9k
-r/gaming
+101k
+r/interestingasfuck
 •Posted by
-u/AmberlyHalcomb
-4 hours ago
-2
-2
-3 round burst sucks they said.
-gfycat.com/impert...
+u/SGT-R0CK
+15 hours ago
+12
+& 38 More
 Join
-249 Comments
+The world's skinniest skyscraper has just been completed in New York City.
+/r/ALL
+7.7k Comments
 Share
 Save
-14.2k
-r/AskReddit
+58.8k
+r/mildlyinfuriating
 •Posted by
-u/fitboy15
-15 hours ago
-6
+u/AMasterfulWriter
+18 hours ago
+7
 3
+4
+& 2 More
 Join
-what situation is completely different if you have an erection?
-nsfw
-6.5k Comments
-Share
-Save
-18.4k
-r/WhitePeopleTwitter
-•Posted by
-u/jueoiw
-4 hours ago
-Join
-23 minutes is a hike?
-imgur.com/tJlLXV...
-897 Comments
+This sign posted by my boss in the break room today.
+7.3k Comments
 Share
 Save
 Top livestream
-26.7k
-r/movies
+21.7k
+r/technicallythetruth
 •Posted by
-u/MarvelsGrantMan136
-15 hours ago
-7
-3
-3
-Will Smith Resigns From Academy Over Chris Rock Oscars Slap
-News
-variety.com/2022/f...
-Join
-4.4k Comments
-Share
-Save
-16.1k
-r/place
-•Posted by
-u/baked-potato_42
-3 hours ago
+u/blackie-arts
+4 hours ago
+6
 2
 Join
-This is just peak germany.
-130 Comments
+People of France (explained in comments)
+475 Comments
 Share
 Save
 Advertisement
