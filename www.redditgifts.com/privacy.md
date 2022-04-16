@@ -1,78 +1,129 @@
 Found the internet!
 Trending today
-Marine Le Pen
-Le Pen against sanctions on Russia over French interests
-Trump
-Trump Jr. accused of 'treason' after pre-Jan. 6 texts to Meadows revealed
-r/politics and more
-LEGO
-Found a fun little detail in the new LEGO game, If you idle with Anakin for a while he pulls out a red light saber instead of a blue one, little easter egg foreshadowing his inevitable crossing to the dark side haha
-r/StarWars and more
+Liz Sheridan
+Liz Sheridan Dies: ‘Seinfeld’ Mom & ‘ALF’ Actress Was 93
+r/television and more
+Climate
+Scott Morrison walks away from a young person after they ask him climate crisis while someone films
+r/australia and more
+New Orleans Pelicans
+Coach Willie Green pouring his heart out during the time out in an effort to rally the Pelicans together
+r/nba and more
+Books
+I'm beginning to think these people haven't even read their own book…
+r/WhitePeopleTwitter and more
+Art
+“Prowling”, Me, watercolor/gouache, 2022
+r/Art and more
 Ukraine
-After long time with no connection to the outside world, people from the liberated territories of Ukraine have ability to call their family thanks to Starlink [subbed]
-r/ukraine and more
-Will Smith
-Actor Will Smith banned from attending Oscars for 10 years
-r/news and more
-Slovakia
-Slovakia sends its entire S-300 surface-to-air missile system to Ukraine. Slovakia recently received the American Patriot missile system from Germany and the Netherlands.
-r/UkrainianConflict and more
+Russia bans Johnson from country over Ukraine war
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-9.7k
-r/worldnews
+464
+r/Cricket
 •Posted by
-u/yurient
-2 hours ago
-Russia to fast-track adoptions of Ukrainian children 'forcibly deported' after their parents were killed by Putin's troops, authorities say
-Russia/Ukraine
-businessinsider.com/russia...
+u/CricketMatchBot
+6 hours ago
 Join
-617 Comments
+Match Thread: 26th Match - Mumbai Indians vs Lucknow Super Giants
+26th Match, Indian Premier League at Mumbai
+
+Cricinfo | Reddit-Stream | ☀️ ☀️ ☀️ ☀️ ☀️
+
+Innings	Score
+Lucknow Super Giants	199/4 (Ov 20/20)
+Mumbai Indians	181/8 (Ov 19.4/20)
+
+Score/Win Prediction: 0.01%
+
+
+
+
+Batter	Runs	Balls	SR
+Jasprit Bumrah*	0	1	0.0
+Kieron Pollard	25	12	208.33Bowler	Overs	Runs	Wickets
+Dushmantha Chameera	3.4	48	0
+Jason Holder	4	34	1
+Recent : 6 1 . 2  |  4 . 1 W 4 .  |  2 1 6 4 4lb .  |  W 6 W . 
+
+
+Mumbai need 19 runs in 2 balls.
+
+Live match threads: Oman vs Papua New Guinea | Royal Challengers Bangalore vs Delhi Capitals | Cayman Islands vs Bahamas |
+
+Send feedback | Schedule | Stat Help
+
+Please don't post illegal streaming links in match threads
+
+8.2k Comments
 Share
 Save
-101k
-r/interestingasfuck
+25.0k
+r/MurderedByWords
 •Posted by
-u/SGT-R0CK
-15 hours ago
-12
-& 38 More
-Join
-The world's skinniest skyscraper has just been completed in New York City.
-/r/ALL
-7.7k Comments
-Share
-Save
-58.8k
-r/mildlyinfuriating
-•Posted by
-u/AMasterfulWriter
-18 hours ago
-7
-3
+u/beerbellybegone
+4 hours ago
 4
-& 2 More
+2
 Join
-This sign posted by my boss in the break room today.
-7.3k Comments
+You do you
+989 Comments
+Share
+Save
+12.6k
+r/AskReddit
+•Posted by
+u/villewallden
+5 hours ago
+4
+Join
+What's a thing that all men do but never admit doing?
+nsfw
+6.6k Comments
+Share
+Save
+41.6k
+r/politics
+•Posted by
+u/4thDevilsAdvocate
+15 hours ago
+4
+4
+3
+Bidens paid 24.6% tax rate on $610,702 earnings, their tax filings show
+npr.org/2022/0...
+Join
+5.0k Comments
 Share
 Save
 Top livestream
-21.7k
-r/technicallythetruth
+43.1k
+r/news
 •Posted by
-u/blackie-arts
-4 hours ago
-6
-2
+u/Throwupmyhands
+11 hours ago
+3
+Woman Pepper-Sprayed Man Taking Photos of His Own Children in Arlington: Police
+nbcwashington.com/news/l...
 Join
-People of France (explained in comments)
-475 Comments
+4.3k Comments
+Share
+Save
+23.5k
+r/gaming
+•Posted by
+u/Reroot_gaming
+4 hours ago
+3
+2
+6
+Join
+One of my favourite Easter Eggs in gaming
+248 Comments
 Share
 Save
 Advertisement
