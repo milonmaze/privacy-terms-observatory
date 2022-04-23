@@ -1,129 +1,110 @@
 Found the internet!
 Trending today
-Liz Sheridan
-Liz Sheridan Dies: ‘Seinfeld’ Mom & ‘ALF’ Actress Was 93
-r/television and more
-Climate
-Scott Morrison walks away from a young person after they ask him climate crisis while someone films
-r/australia and more
-New Orleans Pelicans
-Coach Willie Green pouring his heart out during the time out in an effort to rally the Pelicans together
-r/nba and more
-Books
-I'm beginning to think these people haven't even read their own book…
-r/WhitePeopleTwitter and more
-Art
-“Prowling”, Me, watercolor/gouache, 2022
-r/Art and more
+Kevin McCarthy
+NYT reporters say "we have a lot more on tape" after releasing McCarthy audio
+r/politics and more
+January 6th Investigation
+Jan. 6 Committee Findings Are So Explosive They Will ‘Blow the Roof Off the House,’ Rep. Jamie Raskin Says
+r/politics and more
+Netflix
+Netflix Officially Adding Commercials
+r/technology and more
+Emilia Romagna GP
+2022 Emilia Romagna Grand Prix - Free Practice 2 Results
+r/formula1 and more
 Ukraine
-Russia bans Johnson from country over Ukraine war
+BREAKING: Ukrainian presidential advisor Aleksey Arestovich reported that Ukraine’s defense forces destroyed the Russian command post in the Kherson region, in which there were about 50 military officers.
+r/ukraine and more
+Florida
+Florida atheist petitions to ban the Bible in schools: "If they're gonna ban books…apply their own standards to themselves and ban the Bible" | He cites age inappropriateness; social-emotional learning; and mentions of bestiality, rape, and slavery. Each reason is accompanied by a Bible excerpt.
+r/atheism and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-464
-r/Cricket
-•Posted by
-u/CricketMatchBot
-6 hours ago
-Join
-Match Thread: 26th Match - Mumbai Indians vs Lucknow Super Giants
-26th Match, Indian Premier League at Mumbai
-
-Cricinfo | Reddit-Stream | ☀️ ☀️ ☀️ ☀️ ☀️
-
-Innings	Score
-Lucknow Super Giants	199/4 (Ov 20/20)
-Mumbai Indians	181/8 (Ov 19.4/20)
-
-Score/Win Prediction: 0.01%
-
-
-
-
-Batter	Runs	Balls	SR
-Jasprit Bumrah*	0	1	0.0
-Kieron Pollard	25	12	208.33Bowler	Overs	Runs	Wickets
-Dushmantha Chameera	3.4	48	0
-Jason Holder	4	34	1
-Recent : 6 1 . 2  |  4 . 1 W 4 .  |  2 1 6 4 4lb .  |  W 6 W . 
-
-
-Mumbai need 19 runs in 2 balls.
-
-Live match threads: Oman vs Papua New Guinea | Royal Challengers Bangalore vs Delhi Capitals | Cayman Islands vs Bahamas |
-
-Send feedback | Schedule | Stat Help
-
-Please don't post illegal streaming links in match threads
-
-8.2k Comments
-Share
-Save
-25.0k
-r/MurderedByWords
-•Posted by
-u/beerbellybegone
-4 hours ago
-4
-2
-Join
-You do you
-989 Comments
-Share
-Save
-12.6k
+16.3k
 r/AskReddit
 •Posted by
-u/villewallden
-5 hours ago
+u/TGYHJDFGH
+16 hours ago
+2
 4
 Join
-What's a thing that all men do but never admit doing?
-nsfw
-6.6k Comments
+What beloved person in history should be hated?
+11.7k Comments
 Share
 Save
-41.6k
-r/politics
+119k
+r/facepalm
 •Posted by
-u/4thDevilsAdvocate
+u/usuzulose
 15 hours ago
-4
-4
-3
-Bidens paid 24.6% tax rate on $610,702 earnings, their tax filings show
-npr.org/2022/0...
+12
+& 45 More
 Join
-5.0k Comments
+We ordered a grill. Got 300 iPads
+ 🇲​🇮​🇸​🇨​
+9.3k Comments
+Share
+Save
+22.1k
+r/Damnthatsinteresting
+•Posted by
+u/esberat
+3 hours ago
+Join
+Imagine being stoned here.
+Video
+0:00
+1:25
+1.2k Comments
 Share
 Save
 Top livestream
-43.1k
-r/news
+19.4k
+r/wallstreetbets
 •Posted by
-u/Throwupmyhands
-11 hours ago
+u/SupersonicMars
+10 hours ago
+5
 3
-Woman Pepper-Sprayed Man Taking Photos of His Own Children in Arlington: Police
-nbcwashington.com/news/l...
+3
 Join
-4.3k Comments
+Elon Musk confirms that Bill Gates has a 500 million short position against Tesla
+News | TSLA
+3.7k Comments
 Share
 Save
-23.5k
-r/gaming
+9.6k
+r/news
 •Posted by
-u/Reroot_gaming
-4 hours ago
-3
-2
-6
+u/Dirtyfaction
+10 hours ago
+Louisiana girl, 4, dies after grandmother allegedly forced her to drink bottle of whiskey
+nbcnews.com/news/u...
 Join
-One of my favourite Easter Eggs in gaming
-248 Comments
+1.2k Comments
+Share
+Save
+1.1k
+r/AskUK
+•Posted by
+u/acechapo25
+8 hours ago
+Join
+Isit weird I live with my parents at 26?
+
+I’m 26 years old living in south west And still living with my parents and I earn 53k but i don’t see the point in moving out my parents house. My mum makes me good food, I don’t have to pay rent, my parents are pretty chill and I can work from home
+
+I only think it’s weird because all my friends have moved out to their own apartmen/flat with their girl/boyfriend or own their own. Idk maybe I’m overthinking shit
+
+Edit: Jheeeze this blew up wtf… luckily my parent have paid of their mortgage otherwise I would def be helping and my mum is kind of overly caring so would want to make food, even when I’m not hungry 🤦🏽‍♂️ I was also living in anothe city for 2 years before lockdown but I’ve been WFH since lockdown so decided to back with my parents as I wouldn’t have to pay rent plus the room I was renting at the time was so small it was claustrophobic
+
+Sounds like a majority of people don’t see a problem in living with parents at this age and that if one is giving the chance to then take the opportunity to save for a mortgage later in life which is def needed!
+
+1.2k Comments
 Share
 Save
 Advertisement
