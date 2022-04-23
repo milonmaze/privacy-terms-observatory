@@ -34,9 +34,9 @@ Change your consent
 
 
 
-Cookie declaration last updated on 2/4/22 by Cookiebot:
+Cookie declaration last updated on 4/5/22 by Cookiebot:
 
-Necessary (25)
+Necessary (24)
 
 Necessary cookies help make a website usable by enabling basic functions like page navigation and access to secure areas of the website. The website cannot function properly without these cookies. These cookies do not gather information about you that could be used for marketing purposes and do not remember where you have been on the internet.
 
@@ -47,8 +47,7 @@ _hp2_id.#	ACM	Pending	1 year	HTTP Cookie
 _hp2_ses_props.#	ACM	Pending	1 day	HTTP Cookie
 _sp_v1_consent	Bloomberg	Determines whether the user has accepted the cookie consent box.	29 days	HTTP Cookie
 BACKEND [x4]	ACM	Pending	Session	HTTP Cookie
-BIGipServer#	On24	Used to distribute traffic to the website on several servers in order to optimise response times.	Session	HTTP Cookie
-cc.js	Swiftype	ACM uses Swiftype to index its sites and offer search functionality. Swiftype indexes content across all acm.org domains.	Session	Pixel Tracker
+cc.js	Swiftype	Pending	Session	Pixel Tracker
 CONSENT [x2]	Google
 YouTube	Used to detect if the visitor has accepted the marketing category in the cookie banner. This cookie is necessary for GDPR-compliance of the website.	2 years	HTTP Cookie
 consentUUID [x2]	Bloomberg	Determines whether the user has accepted the cookie consent box.	1 year	HTTP Cookie
@@ -59,14 +58,13 @@ VISITOR_INFO1_LIVE	YouTube	Tries to estimate the users' bandwidth on pages with 
 yt.innertube::nextId	YouTube	Registers a unique ID to keep statistics of what videos from YouTube the user has seen.	Persistent	HTML Local Storage
 yt.innertube::requests	YouTube	Registers a unique ID to keep statistics of what videos from YouTube the user has seen.	Persistent	HTML Local Storage
 
-Preferences (9)
+Preferences (8)
 
 Preference cookies enable a website to remember information that changes the way the website behaves or looks, like your preferred language or the region that you are in.
 
 Name	Provider	Purpose	Expiry	Type
-akaalb_OReillyALB	www.oreilly.com	Pending	Session	HTTP Cookie
+akaalb_OReillyALB	oreilly.com	Pending	Session	HTTP Cookie
 CookieConsentBulkSetting-#	Cookiebot	Enables cookie consent across multiple websites	Persistent	HTML Local Storage
-yt-player-bandaid-host	YouTube	Used to determine the optimal video quality based on the visitor's device and network settings.	Persistent	HTML Local Storage
 yt-remote-cast-installed	YouTube	Stores the user's video player preferences using embedded YouTube video	Session	HTML Local Storage
 yt-remote-connected-devices	YouTube	Stores the user's video player preferences using embedded YouTube video	Persistent	HTML Local Storage
 yt-remote-device-id	YouTube	Stores the user's video player preferences using embedded YouTube video	Persistent	HTML Local Storage
@@ -98,7 +96,7 @@ IXWRAPPERLiveRampIp	Bloomberg	Collects anonymous data on the user's visits to th
 loglevel	Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	Persistent	HTML Local Storage
 vuid	Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	2 years	HTTP Cookie
 
-Marketing (30)
+Marketing (31)
 
 Marketing cookies are used to track visitors across websites. The intention is to display ads that are relevant and engaging for the individual user and thereby more valuable for publishers and third party advertisers.
 
@@ -123,6 +121,7 @@ youbora.data	Bloomberg	Presents the user with relevant content and advertisement
 youbora.dataTime	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.session	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.sessionExpire	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
+youbora.youboraDeviceUUID	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youboraOffline.views	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 YSC	YouTube	Registers a unique ID to keep statistics of what videos from YouTube the user has seen.	Session	HTTP Cookie
 ytidb::LAST_RESULT_ENTRY_KEY	YouTube	Stores the user's video player preferences using embedded YouTube video	Persistent	HTML Local Storage
@@ -133,7 +132,7 @@ Unclassified (1)
 Unclassified cookies are cookies that we are in the process of classifying, together with the providers of individual cookies.
 
 Name	Provider	Purpose	Expiry	Type
-CTCOOKIE	library.skillport.com	Pending	Session	HTTP Cookie
+exp_pref	Bloomberg	Pending	Session	HTTP Cookie
 PRIVACY POLICY
 Privacy Policy
 Read the ACM Privacy Policy.
