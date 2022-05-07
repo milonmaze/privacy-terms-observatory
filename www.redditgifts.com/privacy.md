@@ -1,110 +1,97 @@
 Found the internet!
 Trending today
-Kevin McCarthy
-NYT reporters say "we have a lot more on tape" after releasing McCarthy audio
-r/politics and more
-January 6th Investigation
-Jan. 6 Committee Findings Are So Explosive They Will ‘Blow the Roof Off the House,’ Rep. Jamie Raskin Says
-r/politics and more
-Netflix
-Netflix Officially Adding Commercials
-r/technology and more
-Emilia Romagna GP
-2022 Emilia Romagna Grand Prix - Free Practice 2 Results
+Charles Oliveira
+Charles Oliveira misses weight on his second attempt (155.5)
+r/MMA and more
+Roe v. Wade
+Fences up around Supreme Court after Roe v Wade leak
+r/interestingasfuck and more
+Labor Unions
+Amazon Labor Union's president wore a jacket with 'Eat The Rich' on it while meeting Biden today...
+r/antiwork and more
+Miami
+[Motorsport.com] Lewis Hamilton is not a fan of Miami's tight uphill chicane, saying it reminds him of driving karts around the B&Q car parks in the UK.
 r/formula1 and more
 Ukraine
-BREAKING: Ukrainian presidential advisor Aleksey Arestovich reported that Ukraine’s defense forces destroyed the Russian command post in the Kherson region, in which there were about 50 military officers.
-r/ukraine and more
-Florida
-Florida atheist petitions to ban the Bible in schools: "If they're gonna ban books…apply their own standards to themselves and ban the Bible" | He cites age inappropriateness; social-emotional learning; and mentions of bestiality, rape, and slavery. Each reason is accompanied by a Bible excerpt.
-r/atheism and more
+Russian tank ace, 25, crowned world champion in international war games contest is killed after Putin sends him into real war in Ukraine
+Gamestop
+CEO of GameStop, Matt Furlong. Veteran e-commerce leader with significant experience implementing growth strategies. Let’s change googles top image results for CEO of GameStop with Matt Furlong!
+r/Superstonk and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-16.3k
+50.3k
+r/aww
+•Posted by
+u/mcflymikes
+5 hours ago
+18
+29
+17
+& 3 More
+Join
+Turtles helping each other in times of need
+0:00
+0:18
+723 Comments
+Share
+Save
+9.0k
 r/AskReddit
 •Posted by
-u/TGYHJDFGH
-16 hours ago
+u/DrLizardLover
+9 hours ago
 2
-4
+2
 Join
-What beloved person in history should be hated?
-11.7k Comments
+What isn't a religion but people treat it like it is?
+10.3k Comments
 Share
 Save
-119k
-r/facepalm
+146k
+r/IdiotsInCars
 •Posted by
-u/usuzulose
-15 hours ago
-12
-& 45 More
+u/Godwin_Bot
+19 hours ago
+2
+& 151 More
 Join
-We ordered a grill. Got 300 iPads
- 🇲​🇮​🇸​🇨​
-9.3k Comments
-Share
-Save
-22.1k
-r/Damnthatsinteresting
-•Posted by
-u/esberat
-3 hours ago
-Join
-Imagine being stoned here.
-Video
+Should have looked left...
 0:00
-1:25
-1.2k Comments
+0:35
+5.9k Comments
 Share
 Save
 Top livestream
-19.4k
-r/wallstreetbets
+41.9k
+r/worldnews
 •Posted by
-u/SupersonicMars
-10 hours ago
-5
-3
-3
+u/CoralBalloon
+6 hours ago
+7
+6
+Vladimir Putin’s glitzy $989 million megayacht seized by the Italian government
+Russia/Ukraine
+news.com.au/world/...
 Join
-Elon Musk confirms that Bill Gates has a 500 million short position against Tesla
-News | TSLA
-3.7k Comments
+2.0k Comments
 Share
 Save
-9.6k
-r/news
+36.9k
+r/wholesomememes
 •Posted by
-u/Dirtyfaction
-10 hours ago
-Louisiana girl, 4, dies after grandmother allegedly forced her to drink bottle of whiskey
-nbcnews.com/news/u...
+u/NarcissisticEyes
+5 hours ago
+6
+6
+3
 Join
-1.2k Comments
-Share
-Save
-1.1k
-r/AskUK
-•Posted by
-u/acechapo25
-8 hours ago
-Join
-Isit weird I live with my parents at 26?
-
-I’m 26 years old living in south west And still living with my parents and I earn 53k but i don’t see the point in moving out my parents house. My mum makes me good food, I don’t have to pay rent, my parents are pretty chill and I can work from home
-
-I only think it’s weird because all my friends have moved out to their own apartmen/flat with their girl/boyfriend or own their own. Idk maybe I’m overthinking shit
-
-Edit: Jheeeze this blew up wtf… luckily my parent have paid of their mortgage otherwise I would def be helping and my mum is kind of overly caring so would want to make food, even when I’m not hungry 🤦🏽‍♂️ I was also living in anothe city for 2 years before lockdown but I’ve been WFH since lockdown so decided to back with my parents as I wouldn’t have to pay rent plus the room I was renting at the time was so small it was claustrophobic
-
-Sounds like a majority of people don’t see a problem in living with parents at this age and that if one is giving the chance to then take the opportunity to save for a mortgage later in life which is def needed!
-
-1.2k Comments
+Feeling of gains is nice
+OCGif
+210 Comments
 Share
 Save
 Advertisement
