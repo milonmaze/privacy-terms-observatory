@@ -1,13 +1,3 @@
-This website uses cookies
-
-We occasionally run membership recruitment campaigns on social media channels and use cookies to track post-clicks. We also share information about your use of our site with our social media, advertising and analytics partners who may combine it with other information that you’ve provided to them or that they’ve collected from your use of their services. Use the check boxes below to choose the types of cookies you consent to have stored on your device.
-
-
-Use necessary cookies onlyAllow selected cookiesAllow all cookies
-Necessary
-Preferences
-Statistics
-Marketing	Show details
 Home
 Cookie Declaration
 
@@ -29,12 +19,16 @@ You can change or withdraw your consent from the Cookie Declaration on our websi
 
 Your consent applies to the following domains: www.acm.org, awards.acm.org
 
-Your current state: Deny. 
-Change your consent
+Your current state: Allow all. 
+
+Your consent ID: -3
+Consent date:
+
+Change your consent  |  Withdraw your consent
 
 
 
-Cookie declaration last updated on 4/5/22 by Cookiebot:
+Cookie declaration last updated on 5/5/22 by Cookiebot:
 
 Necessary (24)
 
@@ -63,7 +57,7 @@ Preferences (8)
 Preference cookies enable a website to remember information that changes the way the website behaves or looks, like your preferred language or the region that you are in.
 
 Name	Provider	Purpose	Expiry	Type
-akaalb_OReillyALB	oreilly.com	Pending	Session	HTTP Cookie
+akaalb_OReillyALB	www.oreilly.com	Pending	Session	HTTP Cookie
 CookieConsentBulkSetting-#	Cookiebot	Enables cookie consent across multiple websites	Persistent	HTML Local Storage
 yt-remote-cast-installed	YouTube	Stores the user's video player preferences using embedded YouTube video	Session	HTML Local Storage
 yt-remote-connected-devices	YouTube	Stores the user's video player preferences using embedded YouTube video	Persistent	HTML Local Storage
@@ -93,15 +87,15 @@ _sp_v1_ss	Bloomberg	Part of third-party consent management platform (CMP) – Th
 _sp_v1_uid	Bloomberg	Part of third-party consent management platform (CMP) – The cookies gather data on the user’s interaction with the website’s consent tool, in order to present the best version of the consent-tool.	29 days	HTTP Cookie
 collect	Google	Used to send data to Google Analytics about the visitor's device and behavior. Tracks the visitor across devices and marketing channels.	Session	Pixel Tracker
 IXWRAPPERLiveRampIp	Bloomberg	Collects anonymous data on the user's visits to the website, such as the number of visits, average time spent on the website and what pages have been loaded with the purpose of generating reports for optimising the website content.	Persistent	HTML Local Storage
-loglevel	Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	Persistent	HTML Local Storage
-vuid	Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	2 years	HTTP Cookie
+loglevel	Vimeo Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	Persistent	HTML Local Storage
+vuid	Vimeo Livestream	Collects data on visitor interaction with the website's video-content - This data is used to make the website's video-content more relevant towards the visitor.	2 years	HTTP Cookie
 
-Marketing (31)
+Marketing (30)
 
 Marketing cookies are used to track visitors across websites. The intention is to display ads that are relevant and engaging for the individual user and thereby more valuable for publishers and third party advertisers.
 
 Name	Provider	Purpose	Expiry	Type
-__atuvc [x2]	Oracle	Updates the counter of a website's social sharing features.	1 year	HTTP Cookie
+__atuvc [x2]	Oracle	Updates the counter of a website's social sharing features.	13 months	HTTP Cookie
 __atuvs [x2]	Oracle	Ensures that the updated counter is displayed to the user if a page is shared with the social sharing service, AddThis.	1 day	HTTP Cookie
 _at.cww [x2]	Oracle	Used by the social sharing platform AddThis	Persistent	HTML Local Storage
 _gcl_au	Google	Used by Google AdSense for experimenting with advertisement efficiency across websites using their services.	3 months	HTTP Cookie
@@ -110,29 +104,30 @@ at-lojson-cache-# [x2]	v1.addthisedge.com	Used by the social sharing platform Ad
 at-rand [x2]	Oracle	Used by the social sharing platform AddThis	Persistent	HTML Local Storage
 IDE	Google	Used by Google DoubleClick to register and report the website user's actions after viewing or clicking one of the advertiser's ads with the purpose of measuring the efficacy of an ad and to present targeted ads to the user.	1 year	HTTP Cookie
 IXWRAPPERMerkleIp	Bloomberg	Collects anonymous data on the user's visits to the website, such as the number of visits, average time spent on the website and what pages have been loaded with the purpose of generating reports for optimising the website content.	Persistent	HTML Local Storage
-loc	Oracle	Geolocation, which is used to help providers determine how users who share information with each other are geographically located (state level).	1 year	HTTP Cookie
+loc	Oracle	Geolocation, which is used to help providers determine how users who share information with each other are geographically located (state level).	13 months	HTTP Cookie
 pagead/1p-user-list/#	Google	Tracks if the user has shown interest in specific products or events across multiple websites and detects how the user navigates between sites. This is used for measurement of advertisement efforts and facilitates payment of referral-fees between websites.	Session	Pixel Tracker
 pagead/landing [x2]	Google	Collects data on visitor behaviour from multiple websites, in order to present more relevant advertisement - This also allows the website to limit the number of times that they are shown the same advertisement.	Session	Pixel Tracker
 test_cookie	Google	Used to check if the user's browser supports cookies.	1 day	HTTP Cookie
-uvc	Oracle	Detects how often the social sharing service, AddThis, encounters the same user.	1 year	HTTP Cookie
-xtc	Oracle	Registers the user's sharing of content via social media.	1 year	HTTP Cookie
+uvc	Oracle	Detects how often the social sharing service, AddThis, encounters the same user.	13 months	HTTP Cookie
+xtc	Oracle	Registers the user's sharing of content via social media.	13 months	HTTP Cookie
 youbora.accCode	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.data	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.dataTime	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.session	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youbora.sessionExpire	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
-youbora.youboraDeviceUUID	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 youboraOffline.views	Bloomberg	Presents the user with relevant content and advertisement. The service is provided by third-party advertisement hubs, which facilitate real-time bidding for advertisers.	Persistent	HTML Local Storage
 YSC	YouTube	Registers a unique ID to keep statistics of what videos from YouTube the user has seen.	Session	HTTP Cookie
 ytidb::LAST_RESULT_ENTRY_KEY	YouTube	Stores the user's video player preferences using embedded YouTube video	Persistent	HTML Local Storage
 yt-remote-cast-available	YouTube	Stores the user's video player preferences using embedded YouTube video	Session	HTML Local Storage
 
-Unclassified (1)
+Unclassified (3)
 
 Unclassified cookies are cookies that we are in the process of classifying, together with the providers of individual cookies.
 
 Name	Provider	Purpose	Expiry	Type
-exp_pref	Bloomberg	Pending	Session	HTTP Cookie
+CTCOOKIE [x2]	library.skillport.com
+xlibrary.skillport.com	Pending	Session	HTTP Cookie
+my_ip	Bloomberg	Pending	Session	HTML Local Storage
 PRIVACY POLICY
 Privacy Policy
 Read the ACM Privacy Policy.
@@ -140,3 +135,5 @@ COOKIE NOTICE
 Contact Us
 
 Contact us with any questions on our handling of cookies at dpo@acm.org.
+
+AddThis Sharing Sidebar
