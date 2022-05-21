@@ -1,71 +1,61 @@
 Found the internet!
 Trending today
+Monkeypox
+WHO convenes emergency monkeypox meeting amid growing fears about international outbreak
+Texas
+Alex Jones back on the hook for damages after bankruptcy judge sends Sandy Hook cases to Texas court
+r/news and more
 Elon Musk
-Elon Musk Has Competition As Snoop Dogg Says He Wants To Buy Twitter
-r/entertainment and more
-Starbucks Union
-The Union-Busting Crime Wave at Starbucks and Amazon Is Getting Worse
+Analysis: Tesla brand threatened by Musk harassment claim, criticism of Democrats
 r/technology and more
+Kurzgesagt
+Kurzgesagt has released 6 channels in different languages, Hindi being one of them! Share the channel with your family as it's one of the best free sources for scientific knowledge out there.
+r/india and more
+Tornadoes
+A tornado just blew through my city (Germany)
+r/ThatsInsane and more
 Ukraine
-Zelensky says Macron urged him to yield territory in bid to end Ukraine war
-Abortion Rights
-Sanders Asks Why Manchin’s a Democrat After His “No” Vote on Abortion Bill
-r/politics and more
-North Korea
-North Korea confirms first COVID death; 350,000 reporting ‘fever’ | News
-Putin
-Ukraine's Chief of Intelligence: Putin has cancer
-r/ukraine and more
+World has just ten weeks' worth of wheat left after Ukraine war
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-24.7k
-r/aww
+18.3k
+r/gaming
 •Posted by
-u/vladgrinch
-4 hours ago
-4
-7
+u/CHAMAROP
+3 hours ago
+2
 4
 Join
-Doctor Meow and the Multiverse of Catness
-0:00
-0:14
-199 Comments
+He is trying his best
+95 Comments
 Share
 Save
-61.5k
-r/nextfuckinglevel
+70.6k
+r/IdiotsInCars
 •Posted by
-u/Vaedfr
-5 hours ago
-11
-18
-21
+u/crazy-8
+13 hours ago
+8
+& 31 More
 Join
-Grey wolf transforms into a good boy when he is visited by the people that helped raise their pack
+Does idiots in trucks count?
 0:00
-0:41
-1.0k Comments
+0:25
+3.6k Comments
 Share
 Save
-50.3k
-r/PublicFreakout
+10.4k
+r/therewasanattempt
 •Posted by
-u/crazycu
-14 hours ago
-7
-5
-& 13 More
+u/ASTATINE_628
+2 hours ago
 Join
-9 year old boy beats on black neighbors door with a whip and parents confront the boys father and the father displays a firearm and accidentally discharges it at the end
-🏆 Mod's Choice 🏆
-0:00
-1:44
-5.1k Comments
+to distinguish between good and evil.
+345 Comments
 Share
 Save
 Top livestream
