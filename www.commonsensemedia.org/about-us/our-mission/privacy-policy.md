@@ -1,7 +1,4 @@
 Skip to main content
-
-How to address violence in the news with your kids.  Learn more
-
 For Parents For Educators For Advocates
 Privacy Policy/Your California Privacy Rights
 
@@ -915,28 +912,23 @@ By Age
 Preschoolers (2-4)
 Little Kids (5-7)
 Big Kids (8-9)
-Tweens (10-12)
+Pre-Teens (10-12)
 Teens (13+)
 By Topic
-Cellphones
 Screen Time
+Learning
 Social Media
-Privacy and Online Safety
-Learning with Technology
-Violence in the Media
+Cellphones
+Online Safety
+Race and Ethnicity
 More ...
-Parents' Ultimate Guide to ...
+By Platform
+TikTok
+Snapchat
 Minecraft
-Google Classroom
+Roblox
 Fortnite
 YouTube
-Snapchat
-TikTok
-Roblox
-YouTube Kids
-Zoom
-Messenger Kids
-Parental Controls
 More ...
 Parent Trapped Podcast
 Common Sense Media Plus
