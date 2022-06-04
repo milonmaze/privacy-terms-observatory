@@ -1,90 +1,94 @@
 Found the internet!
 Trending today
-G7 Coal Agreement
-G7 agrees 'concrete steps' to phase out coal
-Boris Johnson
-Boris Johnson set to lose seat as Labour sweep scores of key battleground constituencies | Latest YouGov MRP model suggests that if an election were held tomorrow, the Conservatives would hold on to just three of 88 battleground seats
-r/unitedkingdom and more
-Star Wars Jedi: Survivor
-Star Wars Jedi: Survivor - Official Teaser
-r/StarWars and more
+Rafael Nadal
+36 year old Rafa Nadal with a gorgeous shot to save set point
+r/sports and more
+Peter Navarro
+Peter Navarro arrested on charges of defying Jan 6 committee.
+r/CapitolConsequences and more
+Climate
+Restoring and protecting wetlands could help stave off climate catastrophe
+r/EverythingScience and more
+Right to Repair
+New York state passes first-ever "right to repair" law for electronics | ‘Repairs should become less expensive and more comprehensive’ because of the new measure, says iFixit
+r/technology and more
+Bernie Sanders
+Sanders Says Stop Busting People for Marijuana and Start 'Prosecuting Crooks on Wall Street'
+r/economy and more
 Ukraine
-Moscow-backed Orthodox church in Kyiv cuts ties with Russia over its invasion of Ukraine
-Top Gun: Maverick
-Tom Cruise’s new ‘Top Gun’ could take movies back to the late ’70s and the golden age of blockbusters
-r/boxoffice and more
-MSI 2022 - League of Legends
+Toilet paper with the face of Russian President Vladimir Putin is seen at a shop in downtown Kyiv, Ukraine. Photograph: Carlos Barría/Reuters
+r/ukraine and more
 Popular posts
 Hot
 Everywhere
 New
 Top
 New Posts
-74.0k
-r/news
-•Posted by
-u/r58zzia
-14 hours ago
-7
-& 21 More
-Federal agents entered Uvalde school to kill gunman despite local police initially asking them to wait
-nbcnews.com/news/u...
-Join
-6.6k Comments
-Share
-Save
-76.6k
-r/nottheonion
-•Posted by
-u/Newguyiswinning_
-17 hours ago
-3
-7
-2
-2
-Police didn't immediately confront the gunman as Texas school shooting unfolded because they 'could've been shot'
-insider.com/texas-...
-Join
-4.5k Comments
-Share
-Save
-25.0k
+26.6k
 r/AskReddit
 •Posted by
-u/stupsssss15
-9 hours ago
-5
-2
-6
+u/shayboy444
+12 hours ago
+10
+3
+10
 2
 Join
-To police officers, how are you feeling seeing how the situation was handled in Texas?
-nsfw
-8.6k Comments
+[Serious] What do you think is the creepiest/most disturbing unsolved mystery ever?
+Serious Replies Only
+7.0k Comments
 Share
 Save
-14.8k
-r/WhitePeopleTwitter
+47.4k
+r/news
 •Posted by
-u/DaFunkJunkie
-2 hours ago
-2
+u/FrigginMasshole
+12 hours ago
+3
+5
+Nearly half of families with kids can no longer afford enough food 5 months after child tax credit ended
+cnbc.com/2022/0...
 Join
-We know exactly who’s fault it is
-294 Comments
+3.8k Comments
+Share
+Save
+15.9k
+r/nba
+•Posted by
+u/urfaselol
+18 hours ago
+3
+2
+3
+& 2 More
+Join
+Richard Jefferson’s 2 min. rant on shortening the NBA season: “Professional sports is not good on your body. It's supposed to separate the people that can do it from the people that can't do it… Part of greatness is longevity… I think this is a joke.”
+streamable.com/indu4y
+2.2k Comments
 Share
 Save
 Top livestream
-18.7k
-r/maybemaybemaybe
+23.8k
+r/funny
 •Posted by
-u/SensuallityLady
-4 hours ago
-4
+u/Good-Entrepreneur960
+2 hours ago
+7
+14
+8
 Join
-Maybe maybe maybe
-/r/all
-403 Comments
+let's hit the road
+349 Comments
+Share
+Save
+17.5k
+r/WhitePeopleTwitter
+•Posted by
+u/-Xoz-
+3 hours ago
+Join
+They want us to forget
+330 Comments
 Share
 Save
 Advertisement
