@@ -1,94 +1,95 @@
 Found the internet!
-Trending today
-Rafael Nadal
-36 year old Rafa Nadal with a gorgeous shot to save set point
-r/sports and more
-Peter Navarro
-Peter Navarro arrested on charges of defying Jan 6 committee.
-r/CapitolConsequences and more
-Climate
-Restoring and protecting wetlands could help stave off climate catastrophe
-r/EverythingScience and more
-Right to Repair
-New York state passes first-ever "right to repair" law for electronics | ‘Repairs should become less expensive and more comprehensive’ because of the new measure, says iFixit
-r/technology and more
-Bernie Sanders
-Sanders Says Stop Busting People for Marijuana and Start 'Prosecuting Crooks on Wall Street'
-r/economy and more
-Ukraine
-Toilet paper with the face of Russian President Vladimir Putin is seen at a shop in downtown Kyiv, Ukraine. Photograph: Carlos Barría/Reuters
-r/ukraine and more
-Popular posts
-Hot
-Everywhere
-New
-Top
 New Posts
-26.6k
-r/AskReddit
+Vote
+r/climate
 •Posted by
-u/shayboy444
-12 hours ago
-10
-3
-10
-2
+u/stankmanly
+1 hour ago
+Climate crisis is ‘battering our economy’ and driving inflation, new book says
+theguardian.com/busine...
 Join
-[Serious] What do you think is the creepiest/most disturbing unsolved mystery ever?
-Serious Replies Only
-7.0k Comments
+10 Comments
 Share
 Save
-47.4k
-r/news
+Vote
+r/environment
 •Posted by
-u/FrigginMasshole
-12 hours ago
-3
-5
-Nearly half of families with kids can no longer afford enough food 5 months after child tax credit ended
-cnbc.com/2022/0...
+u/Konradleijon
+1 hour ago
+‘Human’ remains found in Amazon where British journalist, Brazilian expert vanished
+nypost.com/2022/0...
 Join
-3.8k Comments
+13 Comments
 Share
 Save
-15.9k
-r/nba
+29.4k
+r/MadeMeSmile
 •Posted by
-u/urfaselol
-18 hours ago
-3
-2
-3
-& 2 More
-Join
-Richard Jefferson’s 2 min. rant on shortening the NBA season: “Professional sports is not good on your body. It's supposed to separate the people that can do it from the people that can't do it… Part of greatness is longevity… I think this is a joke.”
-streamable.com/indu4y
-2.2k Comments
-Share
-Save
-Top livestream
-23.8k
-r/funny
-•Posted by
-u/Good-Entrepreneur960
-2 hours ago
-7
-14
-8
-Join
-let's hit the road
-349 Comments
-Share
-Save
-17.5k
-r/WhitePeopleTwitter
-•Posted by
-u/-Xoz-
+u/womb_raider_420
 3 hours ago
+6
+11
+6
 Join
-They want us to forget
-330 Comments
+Best wingman ever?
+ Wholesome Moments 
+0:00
+0:40
+526 Comments
+Share
+Save
+102k
+r/MadeMeSmile
+•Posted by
+u/Thryloz
+11 hours ago
+21
+30
+26
+& 6 More
+Join
+That's what pure happiness and joy looks like!!!
+0:00
+0:32
+360 Comments
+Share
+Save
+21.8k
+r/marvelstudios
+•Posted by
+u/ICumCoffee
+21 hours ago
+5
+4
+5
+Join
+Chris Evans on returning as Captain America : “It would have to be perfect, that role means so much to me. To revisit it, it would be a tall order”
+Discussion
+898 Comments
+Share
+Save
+Vote
+r/worldnews
+•Posted by
+u/TheGuvnor247
+1 hour ago
+Ukraine Troops Are Deserting As Russia's Firepower Takes Its Toll
+Russia/Ukraine
+businessinsider.com/ukrain...
+Join
+54 Comments
+Share
+Save
+Vote
+r/Economics
+•Posted by
+u/Big-Tap6139
+46 minutes ago
+$11 billion investment in electric vehicles: Ford to build new plants in Tennessee, Kentucky
+News
+nbcnews.tribe.so/group/...
+Join
+2 Comments
 Share
 Save
 Advertisement
