@@ -1,95 +1,114 @@
 Found the internet!
+Trending today
+Roe v. Wade
+[OC] My response to SCOTUS's decision to overturn Roe v Wade. Protest, Vote, Fight.
+r/pics and more
+Abortion Rights
+Restricting Abortion Just Makes It More Deadly, Says U.N. After U.S. Ruling
+Clarence Thomas
+and the quote will be from Clarence Thomas himself
+r/BlackPeopleTwitter and more
+Supreme Court
+It’s time to say it: the US supreme court has become an illegitimate institution
+r/politics and more
+House Committee
+FROM THE US HOUSE COMMITTEE - CONFIRMED - That Ken Griffin LIED under Oath to Congress - There is NO DENYING it now... #KENGRIFFINLIED #VLADLIEDTOO - Ken Griffin needs to be held accountable for this action!
+r/Superstonk and more
+Ukraine
+Military hospital of veterinary medicine in Khmelnytskyi is the only vet clinic of its type in Ukraine. It treats dogs who were wounded by explosions while in service with the Ukrainian Army, but also other animals wounded during the invasion. The clinic helped 5000 animals since Feb 24th, 2022.
+r/UkrainianConflict and more
+Popular posts
+Hot
+Everywhere
+New
+Top
 New Posts
-Vote
-r/climate
+16.6k
+r/AskReddit
 •Posted by
-u/stankmanly
-1 hour ago
-Climate crisis is ‘battering our economy’ and driving inflation, new book says
-theguardian.com/busine...
+u/catorc3
+14 hours ago
+5
+2
+5
 Join
-10 Comments
+Your date is a 10, but it has 1 thing you don't like that is enough to make you lose interest/walk away. What would that thing be?
+13.5k Comments
 Share
 Save
-Vote
-r/environment
+19.5k
+r/politics
 •Posted by
-u/Konradleijon
-1 hour ago
-‘Human’ remains found in Amazon where British journalist, Brazilian expert vanished
-nypost.com/2022/0...
-Join
-13 Comments
-Share
-Save
-29.4k
-r/MadeMeSmile
-•Posted by
-u/womb_raider_420
+u/newnemo
 3 hours ago
-6
-11
-6
+& 4 More
+It’s time to say it: the US supreme court has become an illegitimate institution
+theguardian.com/commen...
 Join
-Best wingman ever?
- Wholesome Moments 
-0:00
-0:40
-526 Comments
+1.6k Comments
 Share
 Save
-102k
-r/MadeMeSmile
+56.4k
+r/news
 •Posted by
-u/Thryloz
-11 hours ago
-21
-30
-26
-& 6 More
+u/PeaksForDays
+13 hours ago
+& 13 More
+DHS warns of potential violent extremist activity in response to abortion ruling
+cnn.com/2022/0...
 Join
-That's what pure happiness and joy looks like!!!
-0:00
-0:32
-360 Comments
+8.1k Comments
 Share
 Save
-21.8k
-r/marvelstudios
+20.4k
+r/wholesomememes
 •Posted by
-u/ICumCoffee
-21 hours ago
-5
-4
-5
+u/Salt-Garage
+2 hours ago
+3
 Join
-Chris Evans on returning as Captain America : “It would have to be perfect, that role means so much to me. To revisit it, it would be a tall order”
-Discussion
-898 Comments
+Good teacher
+141 Comments
 Share
 Save
-Vote
+15.0k
 r/worldnews
 •Posted by
-u/TheGuvnor247
-1 hour ago
-Ukraine Troops Are Deserting As Russia's Firepower Takes Its Toll
-Russia/Ukraine
-businessinsider.com/ukrain...
+u/Paneraiguy1
+3 hours ago
+Restricting Abortion Just Makes It More Deadly, Says U.N. After U.S. Ruling
+usnews.com/news/u...
 Join
-54 Comments
+838 Comments
 Share
 Save
-Vote
-r/Economics
+83.6k
+r/pics
 •Posted by
-u/Big-Tap6139
-46 minutes ago
-$11 billion investment in electric vehicles: Ford to build new plants in Tennessee, Kentucky
-News
-nbcnews.tribe.so/group/...
+u/where_is_my_monkey
+15 hours ago
+5
+& 71 More
 Join
-2 Comments
+My backyard next to a state highway in Reno, NV (OC)
+OCPolitics
+5.3k Comments
+Share
+Save
+34.8k
+r/formula1
+•Posted by
+u/TheKingOfCaledonia
+16 hours ago
+7
+5
+3
+3
+Join
+Hamilton's thoughts on the US abortion ruling
+ Social Media /r/all
+i.imgur.com/Jz1YPp...
+3.5k Comments
 Share
 Save
 Advertisement
