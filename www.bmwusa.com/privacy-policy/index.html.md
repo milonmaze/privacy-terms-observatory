@@ -1,5 +1,6 @@
 BMW USA
  Choose your local BMW Center
+ My BMW
 Models
 All Models
 X1
@@ -109,7 +110,7 @@ X3 M40i
 X4 M40i
 X5 M50i
 X6 M50i
-X7 M50i
+X7 M60i
 iX M60
 i4 M50
  Shopping
