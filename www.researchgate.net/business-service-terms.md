@@ -10,6 +10,6 @@ If you are on a personal connection, like at home, you can run an anti-virus sca
 
 If you are at an office or shared network, you can ask the network administrator to run a scan across the network looking for misconfigured or infected devices.
 
-Another way to prevent getting this page in the future is to use Privacy Pass. You may need to download version 2.0 now from the Chrome Web Store.
+Another way to prevent getting this page in the future is to use Privacy Pass. Check out the browser extension in the Chrome Web Store.
 
-Cloudflare Ray ID: 6d530b6f0b3e6464 • Your IP: 143.198.58.73 • Performance & security by Cloudflare
+Cloudflare Ray ID: 732ebc76a93096f6 • Your IP: Click to reveal • Performance & security by Cloudflare
