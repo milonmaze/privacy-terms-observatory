@@ -1,90 +1,100 @@
 Found the internet!
 Trending today
-California Secession Movement
-California secession movement was funded and directed by Russian intelligence agents, US government alleges
-Philadelphia 76ers
-[Wojnarowski] ESPN Sources: The NBA has opened an investigation into the Philadelphia 76ers for possible tampering and early contact centered on franchise’s summer free agency class of James Harden, P.J. Tucker and Danuel House. Sixers have begun cooperating with league on probe. Story soon.
-r/nba and more
-Activision
-Billion Dollar Company 'Activision Blizzard' steals indie artist's design for COD Vanguard
-r/gamingnews and more
-Rishi Sunak
-Rishi Sunak vows to 'stop woke nonsense' if he becomes PM by reviewing Equalities Act
-r/unitedkingdom and more
-Aaron Judge
-[Highlight] ALL RISE, AARON JUDGE, GRAND SLAM, 41 HOME RUNS BEFORE AUGUST 1ST!
-r/NYYankees and more
-Assault Weapons Ban
-House passes bill to ban assault weapons
+Brett Kavanaugh
+The FBI Confirms Its Brett Kavanaugh Investigation Was a Total Sham
 r/politics and more
+Tesla
+California regulators aim to revoke Tesla's ability to sell cars in the state over the company's marketing of its 'Full Self-Driving' technology
+r/technology and more
+Kim Kardashian-Pete Davidson Break Up
+Kim Kardashian and Pete Davidson Break Up After 9 Months of Dating
+r/entertainment and more
+Russia-Ukraine War
+U.S. readies new $1 billion Ukraine weapons package
+Alex Jones
+Alex Jones must pay more than $45 million in punitive damages to the family of a Sandy Hook massacre victim, jury orders
+r/news and more
+Taiwan
+Apple warns suppliers to follow China rules on 'Taiwan' labeling
 Popular posts
 Hot
 Everywhere
 New
 Top
-36.4k
-r/funny
+43.1k
+r/MadeMeSmile
 •Posted by
-u/WeedScaper
+u/BlaineBMA
 4 hours ago
-7
-5
-& 9 More
-Join
-I was outside and wanted to see what my dog was doing at home
-0:00
-0:18
-340 Comments
-Share
-Save
-9.7k
-r/ProgrammerHumor
-•Posted by
-u/Onion-User-2
-3 hours ago
 2
+3
+3
+& 104 More
 Join
-Last for 76days
-Meme
-106 Comments
-Share
-Save
-13.3k
-r/interestingasfuck
-•Posted by
-u/robita233
-2 hours ago
-4
-2
-Join
-Map of all NSFW subs made by u/flashman
-/r/ALLnsfw
-688 Comments
-Share
-Save
-18.6k
-r/oddlyterrifying
-•Posted by
-u/michaelangelo86
-4 hours ago
-6
-& 2 More
-Join
-Caught a praying mantis and fed it a fly. I did not expect what would be inside that fly.
-nsfw
+today is my birthday - I'm 70 - and this is my first post on Reddit (OC)
+ Personal Win 
 1.2k Comments
 Share
 Save
-10.5k
-r/AskReddit
+7.8k
+r/NatureIsFuckingLit
 •Posted by
-u/frog_without_a_cause
-11 hours ago
+u/CommonSchemeForYou
+3 hours ago
+2
 2
 Join
-What's the most horrific act committed by someone you know personally? [NSFW]
+🔥 Blue Milk Frog
+0:00
+0:06
+111 Comments
+Share
+Save
+6.6k
+r/AskReddit
+•Posted by
+u/Sense_Conscious
+9 hours ago
+3
+Join
+What’s stopping you from having an onlyfans?
 nsfw
-5.4k Comments
+5.8k Comments
+Share
+Save
+26.7k
+r/robbersgettingfucked
+•Posted by
+u/robbersgettingfucked
+21 hours ago
+8
+13
+& 11 More
+Join
+Smoke shop owner stabs the shit out of thief
+NSFLnsfw
+5.6k Comments
+Share
+Save
+10.9k
+r/FunnyAnimals
+•Posted by
+u/Wisteria-glow
+4 hours ago
+Join
+Human Cat Tree
+89 Comments
+Share
+Save
+4.7k
+r/politics
+•Posted by
+u/morenewsat11
+3 hours ago
+Indiana state representative proposed bill to outlaw erectile dysfunction drugs in light of abortion ban
+businessinsider.com/indian...
+Join
+170 Comments
 Share
 Save
 Advertisement
