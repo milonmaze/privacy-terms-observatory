@@ -1,100 +1,125 @@
 Found the internet!
 Trending today
-Brett Kavanaugh
-The FBI Confirms Its Brett Kavanaugh Investigation Was a Total Sham
-r/politics and more
-Tesla
-California regulators aim to revoke Tesla's ability to sell cars in the state over the company's marketing of its 'Full Self-Driving' technology
+Starlink
+Researcher hacks Elon Musk's Starlink system with $25 homemade device
+Nuclear Fusion
+Nuclear fusion breakthrough confirmed: California team achieved ignition
 r/technology and more
-Kim Kardashian-Pete Davidson Break Up
-Kim Kardashian and Pete Davidson Break Up After 9 Months of Dating
-r/entertainment and more
-Russia-Ukraine War
-U.S. readies new $1 billion Ukraine weapons package
-Alex Jones
-Alex Jones must pay more than $45 million in punitive damages to the family of a Sandy Hook massacre victim, jury orders
+Russia-US Relations
+Moscow warns of end to Russia-US relations if assets seized
+Fernando Tatis Jr.
+[Passan] BREAKING: Padres star Fernando Tatis Jr. violated Major League Baseball’s performance-enhancing drug policy and is facing a suspension, sources familiar with the situation told ESPN.
+r/baseball and more
+Salman Rushdie
+Author Salman Rushdie will ‘likely’ lose an eye after being stabbed in New York
 r/news and more
-Taiwan
-Apple warns suppliers to follow China rules on 'Taiwan' labeling
+Lauren Boebert
+Listen: Lauren Boebert’s neighbors’ 911 calls describe threats, husband running over mailbox
+r/news and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-43.1k
-r/MadeMeSmile
+15.6k
+r/news
 •Posted by
-u/BlaineBMA
-4 hours ago
-2
-3
-3
-& 104 More
+u/gymgirl2018
+3 hours ago
+Listen: Lauren Boebert’s neighbors’ 911 calls describe threats, husband running over mailbox
+denverpost.com/2022/0...
 Join
-today is my birthday - I'm 70 - and this is my first post on Reddit (OC)
- Personal Win 
 1.2k Comments
 Share
 Save
-7.8k
-r/NatureIsFuckingLit
+32.8k
+r/Unexpected
 •Posted by
-u/CommonSchemeForYou
-3 hours ago
-2
-2
-Join
-🔥 Blue Milk Frog
-0:00
-0:06
-111 Comments
-Share
-Save
-6.6k
-r/AskReddit
-•Posted by
-u/Sense_Conscious
-9 hours ago
+u/RedTomatoSauce
+4 hours ago
 3
+4
+5
+Backing up your car in the garage
+i.imgur.com/qSeyut...
 Join
-What’s stopping you from having an onlyfans?
-nsfw
-5.8k Comments
+225 Comments
 Share
 Save
-26.7k
-r/robbersgettingfucked
-•Posted by
-u/robbersgettingfucked
-21 hours ago
-8
-13
-& 11 More
-Join
-Smoke shop owner stabs the shit out of thief
-NSFLnsfw
-5.6k Comments
-Share
-Save
-10.9k
+27.7k
 r/FunnyAnimals
 •Posted by
-u/Wisteria-glow
-4 hours ago
+u/Levi-7536
+5 hours ago
+2
+14
+4
 Join
-Human Cat Tree
-89 Comments
+He made a new friend
+213 Comments
 Share
 Save
-4.7k
+14.6k
+r/AskReddit
+•Posted by
+u/True_Egg_5685
+6 hours ago
+5
+& 5 More
+Join
+Which celebrity went on the fastest, hardest and most destructive downwards spiral from their peak?
+nsfw
+7.2k Comments
+Share
+Save
+12.7k
+r/pcmasterrace
+•Posted by
+u/Xwolfgangx97
+4 hours ago
+2
+2
+Join
+Who did it better?
+Meme/Macro
+305 Comments
+Share
+Save
+13.2k
+r/ProgrammerHumor
+•Posted by
+u/Beautiful_Feed2814
+6 hours ago
+Join
+I see this happening to almost every senior software professional
+Meme
+392 Comments
+Share
+Save
+6.4k
+r/Wallstreetsilver
+•Posted by
+u/29PiecesOfSilver
+14 hours ago
+2
+4
+& 16 More
+Join
+GIVEAWAY: Today I’ll be giving away 1KG of SILVER to one lucky SilverBack who upvotes and comments why they love silver! 🦾❤️ Totally free… I will ship to you… Giveaway ends 08/31/2022!!
+ Silver Contest  
+6.8k Comments
+Share
+Save
+25.6k
 r/politics
 •Posted by
-u/morenewsat11
-3 hours ago
-Indiana state representative proposed bill to outlaw erectile dysfunction drugs in light of abortion ban
-businessinsider.com/indian...
+u/dogheritage0
+11 hours ago
+2
+Some Trump Allies Reportedly Are Trying To 'Go Dark' Amid Search Warrant Revelations
+huffpost.com/entry/...
 Join
-170 Comments
+1.9k Comments
 Share
 Save
 Advertisement
