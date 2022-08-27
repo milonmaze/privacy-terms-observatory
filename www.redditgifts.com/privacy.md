@@ -1,99 +1,102 @@
 Found the internet!
 Trending today
-Tesla
-YouTube removes video by Tesla investors using kids in FSD Beta test
+Solar Panel Canopies
+In a US first, California will pilot solar-panel canopies over canals
+r/technews and more
+Meta AI
+Meta Is Building an AI to Fact-Check Wikipedia—All 6.5 Million Articles
 r/technology and more
-G-20 Summit
-White House Says Zelenskiy Should Join G-20 If Putin Attends
-Mike Pence
-Pence says he didn't leave office with classified material
+Belgian Grand Prix
+2022 Belgian Grand Prix - Free Practice 3 Results
+r/formula1 and more
+Bernie Sanders
+Bernie Sanders says Republicans complaining about student debt forgiveness didn't complain when Donald Trump declared bankruptcy 6 times
 r/politics and more
-Meta
-Facebook parent Meta lays off 60 workers ‘at random’ using algorithm: report
-r/technology and more
-Angela Lee
-MMA Champion Angela Lee trying to make her opponent feel better after submitting her in a fight
-r/MadeMeSmile and more
-Droughts
-Drought in Horn of Africa places 22m people at risk of starvation, says UN
+Resident Evil Cancelled
+‘Resident Evil’ Series Canceled By Netflix After One Season
+r/television and more
+Russia-Ukraine War
+Dmitri Medvedev said that Russia would not stop its military campaign in Ukraine even if Kyiv officially renounced its aspiration to join NATO.
 Popular posts
 Hot
 Everywhere
 New
 Top
-74.4k
-r/interestingasfuck
+54.8k
+r/technology
 •Posted by
-u/iop9
-13 hours ago
-8
-13
-& 13 More
-Join
-China demolishing unfinished high-rises
-/r/ALL
-0:00
-0:59
-6.9k Comments
-Share
-Save
-22.9k
-r/mildyinfuriating
-•Posted by
-u/IPA___Fanatic
-21 hours ago
-3
-Join
-Seeing this guy at the Kentucky State Fair
-i.imgur.com/cT9szm...
-6.5k Comments
-Share
-Save
-27.3k
-r/dankmemes
-•Posted by
-u/NarcissisticEyes
-4 hours ago
-Mod's Choice Award
+u/asteriskspace
+18 hours ago
 2
-3
+& 16 More
+Mark Zuckerberg Says Waking Up Every Day as CEO of Meta is Like Getting Punched in the Stomach
+Business
+tech.slashdot.org/story/...
+Join
+6.7k Comments
+Share
+Save
+86.6k
+r/mildlyinfuriating
+•Posted by
+u/ironwolf6464
+19 hours ago
+2
 6
-2
+7
+7
 Join
-We are in so much trouble
-it's pronounced gif
-155 Comments
+My university screwed all our dorm windows shut, so we can't open it up for fresh air or in emergencies.
+6.4k Comments
 Share
 Save
-75.9k
-r/meirl
+23.8k
+r/movies
 •Posted by
-u/AdorableLilo
-17 hours ago
-& 29 More
+u/PillsburyDohMeeple
+20 hours ago
 Join
-meirl
+What plot twist should you have figured out, except you wrote off a clue as poor filmmaking?
+Spoilersspoiler
 5.3k Comments
 Share
 Save
-1.8k
-r/teenagers
+7.3k
+r/AskReddit
 •Posted by
-u/azteculture
-5 hours ago
+u/dramafan1
+12 hours ago
+2
 Join
-WWYD if you met an attractive girl who was super nice and went on a date with you, but she is trans?
-Discussion
-
-Edit 1: sorry if I come off as aggresive
-
-Edit 2: I got perma banned 💀
-
-Edit 3: it has been nice knowing y’all I don’t think I will be back 🫡
-
-Edit 4: Will appeal the ban in 30 days
-
-2.0k Comments
+What invention would you want to see in your lifetime?
+5.2k Comments
+Share
+Save
+59.5k
+r/interestingasfuck
+•Posted by
+u/WB25
+4 hours ago
+8
+6
+6
+Join
+Fake air vent built into a bunker in Normandy. Grenade surprise!
+/r/ALL
+0:00
+0:08
+1.2k Comments
+Share
+Save
+22.3k
+r/facepalm
+•Posted by
+u/daleadoftimes
+9 hours ago
+Join
+Entitled woman says she can't be with a guy who can't afford to buy her a $200K engagement ring
+ 🇲​🇮​🇸​🇨​
+3.9k Comments
 Share
 Save
 Advertisement
