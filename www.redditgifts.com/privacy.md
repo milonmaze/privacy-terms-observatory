@@ -1,102 +1,104 @@
 Found the internet!
 Trending today
-Solar Panel Canopies
-In a US first, California will pilot solar-panel canopies over canals
-r/technews and more
-Meta AI
-Meta Is Building an AI to Fact-Check Wikipedia—All 6.5 Million Articles
-r/technology and more
-Belgian Grand Prix
-2022 Belgian Grand Prix - Free Practice 3 Results
-r/formula1 and more
-Bernie Sanders
-Bernie Sanders says Republicans complaining about student debt forgiveness didn't complain when Donald Trump declared bankruptcy 6 times
+Indian Economy
+India surpasses UK to become world’s fifth biggest economy
+LCS 2022 Championship
+spoiler
+TSM vs. Evil Geniuses / LCS 2022 Championship - Losers' Bracket Round 2 / Post-Match Discussion
+r/leagueoflegends and more
+William Barr
+Trump Lashes Out at Bill Barr After Comments on Mar-a-Lago Raid
 r/politics and more
-Resident Evil Cancelled
-‘Resident Evil’ Series Canceled By Netflix After One Season
-r/television and more
-Russia-Ukraine War
-Dmitri Medvedev said that Russia would not stop its military campaign in Ukraine even if Kyiv officially renounced its aspiration to join NATO.
+Teacher Apartments
+California school district tries new way to retain teachers: Low-cost apartments on school property
+r/news and more
+Serena Williams
+Serena Williams' 2022 US Open run ends with three-set loss to Ajla Tomljanovic
+r/sports and more
+US-Taiwan Arms Sale
+US announces $1.1bn arms sale to Taiwan, angering China | Taiwan
 Popular posts
 Hot
 Everywhere
 New
 Top
-54.8k
-r/technology
+16.2k
+r/aww
 •Posted by
-u/asteriskspace
-18 hours ago
-2
-& 16 More
-Mark Zuckerberg Says Waking Up Every Day as CEO of Meta is Like Getting Punched in the Stomach
-Business
-tech.slashdot.org/story/...
-Join
-6.7k Comments
-Share
-Save
-86.6k
-r/mildlyinfuriating
-•Posted by
-u/ironwolf6464
-19 hours ago
-2
-6
-7
-7
-Join
-My university screwed all our dorm windows shut, so we can't open it up for fresh air or in emergencies.
-6.4k Comments
-Share
-Save
-23.8k
-r/movies
-•Posted by
-u/PillsburyDohMeeple
-20 hours ago
-Join
-What plot twist should you have figured out, except you wrote off a clue as poor filmmaking?
-Spoilersspoiler
-5.3k Comments
-Share
-Save
-7.3k
-r/AskReddit
-•Posted by
-u/dramafan1
-12 hours ago
+u/Nbc0holden
+2 hours ago
+3
+5
 2
 Join
-What invention would you want to see in your lifetime?
-5.2k Comments
-Share
-Save
-59.5k
-r/interestingasfuck
-•Posted by
-u/WB25
-4 hours ago
-8
-6
-6
-Join
-Fake air vent built into a bunker in Normandy. Grenade surprise!
-/r/ALL
+(OC) My dogs thought I was still in the front yard
 0:00
-0:08
-1.2k Comments
+0:17
+357 Comments
 Share
 Save
-22.3k
-r/facepalm
+20.3k
+r/entertainment
 •Posted by
-u/daleadoftimes
-9 hours ago
+u/MarvelsGrantMan136
+18 hours ago
+'The Lord of the Rings': Amazon Suspends User Reviews for 'Rings of Power'
+comicbook.com/tv-sho...
 Join
-Entitled woman says she can't be with a guy who can't afford to buy her a $200K engagement ring
- 🇲​🇮​🇸​🇨​
-3.9k Comments
+6.3k Comments
+Share
+Save
+52.1k
+r/marvelmemes
+•Posted by
+u/Ok-Engine8044
+14 hours ago
+11
+2
+& 17 More
+Join
+Prove Me Wrong
+Television
+4.2k Comments
+Share
+Save
+61.8k
+r/news
+•Posted by
+u/HelpMeWithMyHWpls
+15 hours ago
+3
+& 4 More
+Death Valley hits 127 degrees, setting record for hottest September day on the planet
+cbsnews.com/losang...
+Join
+3.5k Comments
+Share
+Save
+32.8k
+r/worldnews
+•Posted by
+u/-oshino_shinobu-
+14 hours ago
+2
+2
+4
+Israeli rules say West Bank visitors must declare love interest. Foreigners must tell the Israeli defence ministry if they fall in love with a Palestinian in the occupied West Bank, according to new rules.
+Israel/Palestine
+bbc.co.uk/news/w...
+Join
+3.2k Comments
+Share
+Save
+26.0k
+r/MurderedByWords
+•Posted by
+u/beerbellybegone
+5 hours ago
+2
+Join
+Too many knocks on the head playing Hercules
+533 Comments
 Share
 Save
 Advertisement
