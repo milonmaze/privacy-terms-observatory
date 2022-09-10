@@ -1,104 +1,87 @@
 Found the internet!
 Trending today
-Indian Economy
-India surpasses UK to become world’s fifth biggest economy
-LCS 2022 Championship
-spoiler
-TSM vs. Evil Geniuses / LCS 2022 Championship - Losers' Bracket Round 2 / Post-Match Discussion
-r/leagueoflegends and more
-William Barr
-Trump Lashes Out at Bill Barr After Comments on Mar-a-Lago Raid
-r/politics and more
-Teacher Apartments
-California school district tries new way to retain teachers: Low-cost apartments on school property
-r/news and more
-Serena Williams
-Serena Williams' 2022 US Open run ends with three-set loss to Ajla Tomljanovic
+UFC 279
+Official updated poster for UFC 279
+r/MMA and more
+US Open
+[ESPN] Carlos Alcaraz is headed to the US Open Final. He’s second teenager to ever reach the men’s final.
 r/sports and more
-US-Taiwan Arms Sale
-US announces $1.1bn arms sale to Taiwan, angering China | Taiwan
+King Charles
+King Charles to be proclaimed Canada's new sovereign in ceremony today
+Rings of Power
+Amazon's $1 billion LOTR 'Rings of Power' is losing the ratings and viewer battle to HBO's 'House of the Dragon'
+r/television and more
+Alex Albon
+[Alex Albon] Appendicitis, surgery and no racing isn’t what I was expecting this weekend! Negatives: - Missing out on what looks like a strong weekend for us - Pain Positives - Weight reduction for Singapore - Cool scars
+r/formula1 and more
+Kharkiv, Ukraine
+Ukranians captured Kupyansk, Kharkiv Oblast.
+r/ukraine and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-16.2k
-r/aww
+7.7k
+r/RoastMe
 •Posted by
-u/Nbc0holden
-2 hours ago
-3
-5
+u/BoneMarrowAnon
+16 hours ago
 2
+& 2 More
 Join
-(OC) My dogs thought I was still in the front yard
-0:00
-0:17
-357 Comments
+in the last three months my fiance broke up with me, he kept the dog and the house. It's the day before we were supposed to get married and I just got fired a week after I moved into a new apartment. Do you think I hit rock bottom? Let me hear it!
+2.8k Comments
 Share
 Save
-20.3k
-r/entertainment
+13.6k
+r/apple
 •Posted by
-u/MarvelsGrantMan136
-18 hours ago
-'The Lord of the Rings': Amazon Suspends User Reviews for 'Rings of Power'
-comicbook.com/tv-sho...
+u/Blaglag_
+22 hours ago
+Garmin Reacts to Apple Watch Ultra: 'We Measure Battery Life in Months. Not Hours.'
+Apple Watch
+macrumors.com/2022/0...
 Join
-6.3k Comments
+2.1k Comments
 Share
 Save
-52.1k
-r/marvelmemes
+19.2k
+r/interestingasfuck
 •Posted by
-u/Ok-Engine8044
-14 hours ago
+u/Kidrellik
+11 hours ago
+8
+& 16 More
+Join
+During the British rule of India from 1769 to 1844, a total of 12 famines occurred which combined, killed an estimated 56-80.3 million people and up to 45 trillion dollars of wealth was taken.
+/r/ALLnsfw
+2.5k Comments
+Share
+Save
+14.7k
+r/mildlyinfuriating
+•Posted by
+u/Thatsquacktastic16
+12 hours ago
+Join
+Weirdo customer leaving these at every register at work. Righto pal - thanks for wasting paper.
+2.1k Comments
+Share
+Save
+41.8k
+r/perfectlycutscreams
+•Posted by
+u/Evil_Lord_Skeletor
+11 hours ago
 11
-2
-& 17 More
+12
+7
+& 3 More
 Join
-Prove Me Wrong
-Television
-4.2k Comments
-Share
-Save
-61.8k
-r/news
-•Posted by
-u/HelpMeWithMyHWpls
-15 hours ago
-3
-& 4 More
-Death Valley hits 127 degrees, setting record for hottest September day on the planet
-cbsnews.com/losang...
-Join
-3.5k Comments
-Share
-Save
-32.8k
-r/worldnews
-•Posted by
-u/-oshino_shinobu-
-14 hours ago
-2
-2
-4
-Israeli rules say West Bank visitors must declare love interest. Foreigners must tell the Israeli defence ministry if they fall in love with a Palestinian in the occupied West Bank, according to new rules.
-Israel/Palestine
-bbc.co.uk/news/w...
-Join
-3.2k Comments
-Share
-Save
-26.0k
-r/MurderedByWords
-•Posted by
-u/beerbellybegone
-5 hours ago
-2
-Join
-Too many knocks on the head playing Hercules
-533 Comments
+When bullying gets backfired
+EXTREMELY LOUD
+2.0k Comments
 Share
 Save
 Advertisement
