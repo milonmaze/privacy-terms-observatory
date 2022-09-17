@@ -1,87 +1,109 @@
 Found the internet!
 Trending today
-UFC 279
-Official updated poster for UFC 279
-r/MMA and more
-US Open
-[ESPN] Carlos Alcaraz is headed to the US Open Final. He’s second teenager to ever reach the men’s final.
-r/sports and more
-King Charles
-King Charles to be proclaimed Canada's new sovereign in ceremony today
-Rings of Power
-Amazon's $1 billion LOTR 'Rings of Power' is losing the ratings and viewer battle to HBO's 'House of the Dragon'
-r/television and more
-Alex Albon
-[Alex Albon] Appendicitis, surgery and no racing isn’t what I was expecting this weekend! Negatives: - Missing out on what looks like a strong weekend for us - Pain Positives - Weight reduction for Singapore - Cool scars
-r/formula1 and more
-Kharkiv, Ukraine
-Ukranians captured Kupyansk, Kharkiv Oblast.
+EVGA Ends NVIDIA Partnership
+EVGA will no longer make NVIDIA GPUs due to “disrespectful treatment” - Dexerto
+r/gadgets and more
+Albert Pujols
+ALBERT PUJOLS mashes # 698 to tie the game in the 6th
+r/baseball and more
+Texas Social-Media Law
+Texas Social-Media Law on Web Censorship Upheld by Federal Appeals Court
+r/technology and more
+Flying Bikes
+‘Like Star Wars’: World’s first flying bike, made in Japan, debuts in the US
+r/technology and more
+Tipping Fatigue
+'Now 15 per cent is rude': Tipping fatigue (in Canada) hits customers as requests rise
+r/news and more
+Vladimir Putin
+Biden warns Putin not to use tactical nuclear weapons: such action would "change the face of war unlike anything since World War Two.”
 r/ukraine and more
 Popular posts
 Hot
-Everywhere
 New
 Top
-7.7k
-r/RoastMe
+1
+r/TranscribersOfReddit
 •Posted by
-u/BoneMarrowAnon
-16 hours ago
+u/transcribersofreddit
+4 hours ago
+me_irl | Image | "me_irl"
+Unclaimed
+reddit.com/r/me_i...
+Join
+3 Comments
+Share
+Save
+35.6k
+r/FunnyandSad
+Crossposted by
+u/CJcedero7
+18 hours ago
 2
+It really do be like that
+FunnyandSad
+Join
+724 Comments
+Share
+Save
+50.0k
+r/blackmagicfuckery
+•Posted by
+u/INS0MNI5
+19 hours ago
+5
+2
+7
 & 2 More
 Join
-in the last three months my fiance broke up with me, he kept the dog and the house. It's the day before we were supposed to get married and I just got fired a week after I moved into a new apartment. Do you think I hit rock bottom? Let me hear it!
-2.8k Comments
+This Max Halloween decoration is impressive
+0:00
+0:35
+1.3k Comments
 Share
 Save
-13.6k
-r/apple
+Vote
+r/TranscribersOfReddit
 •Posted by
-u/Blaglag_
-22 hours ago
-Garmin Reacts to Apple Watch Ultra: 'We Measure Battery Life in Months. Not Hours.'
-Apple Watch
-macrumors.com/2022/0...
+u/transcribersofreddit
+1 hour ago
+technicallythetruth | Image | "yup (think about it before u ban me pls its about the things that make u abeled to draw straight lines)"
+Unclaimed
+reddit.com/r/tech...
 Join
-2.1k Comments
+1 Comment
 Share
 Save
-19.2k
-r/interestingasfuck
+1
+r/TranscribersOfReddit
 •Posted by
-u/Kidrellik
-11 hours ago
-8
-& 16 More
+u/transcribersofreddit
+7 hours ago
+traaaaaaannnnnnnnnns | Image | "You'll always be trans enough"
+Unclaimed
+reddit.com/r/traa...
 Join
-During the British rule of India from 1769 to 1844, a total of 12 famines occurred which combined, killed an estimated 56-80.3 million people and up to 45 trillion dollars of wealth was taken.
-/r/ALLnsfw
-2.5k Comments
+3 Comments
 Share
 Save
-14.7k
-r/mildlyinfuriating
+4.5k
+r/thalassophobia
 •Posted by
-u/Thatsquacktastic16
-12 hours ago
+u/PBibbs_00
+13 hours ago
 Join
-Weirdo customer leaving these at every register at work. Righto pal - thanks for wasting paper.
-2.1k Comments
+People do this for fun?!
+162 Comments
 Share
 Save
-41.8k
-r/perfectlycutscreams
+832
+r/wholesomememes
 •Posted by
-u/Evil_Lord_Skeletor
-11 hours ago
-11
-12
-7
-& 3 More
+u/Zaboo_007
+5 hours ago
 Join
-When bullying gets backfired
-EXTREMELY LOUD
-2.0k Comments
+She has got a Best Friend for life
+8 Comments
 Share
 Save
 Advertisement
