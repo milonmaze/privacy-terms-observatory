@@ -1,109 +1,107 @@
 Found the internet!
 Trending today
-EVGA Ends NVIDIA Partnership
-EVGA will no longer make NVIDIA GPUs due to “disrespectful treatment” - Dexerto
-r/gadgets and more
-Albert Pujols
-ALBERT PUJOLS mashes # 698 to tie the game in the 6th
-r/baseball and more
-Texas Social-Media Law
-Texas Social-Media Law on Web Censorship Upheld by Federal Appeals Court
-r/technology and more
-Flying Bikes
-‘Like Star Wars’: World’s first flying bike, made in Japan, debuts in the US
-r/technology and more
-Tipping Fatigue
-'Now 15 per cent is rude': Tipping fatigue (in Canada) hits customers as requests rise
+Starlink
+Elon Musk activates Starlink for Iranian citizens after US Sec of State issued a General License
+Tropical Depression 9
+Florida Gov. Ron DeSantis declares state of emergency over Tropical Depression 9
 r/news and more
-Vladimir Putin
-Biden warns Putin not to use tactical nuclear weapons: such action would "change the face of war unlike anything since World War Two.”
-r/ukraine and more
+Albert Pujols
+Albert Pujols hits his 699th career home run!
+r/baseball and more
+Louise Fletcher
+Louise Fletcher Dies: Oscar-Winning ‘One Flew Over The Cuckoo’s Nest’ Actor Was 88
+r/movies and more
+John Cena
+John Cena breaks Make-A-Wish record after granting hundreds of wishes
+r/news and more
+James Earl Jones
+James Earl Jones officially retires as the voice of Darth Vader from Star Wars
+r/television and more
 Popular posts
 Hot
+Everywhere
 New
 Top
-1
-r/TranscribersOfReddit
+5.7k
+r/AskReddit
 •Posted by
-u/transcribersofreddit
-4 hours ago
-me_irl | Image | "me_irl"
-Unclaimed
-reddit.com/r/me_i...
-Join
-3 Comments
-Share
-Save
-35.6k
-r/FunnyandSad
-Crossposted by
-u/CJcedero7
-18 hours ago
-2
-It really do be like that
-FunnyandSad
-Join
-724 Comments
-Share
-Save
-50.0k
-r/blackmagicfuckery
-•Posted by
-u/INS0MNI5
-19 hours ago
-5
-2
-7
-& 2 More
-Join
-This Max Halloween decoration is impressive
-0:00
-0:35
-1.3k Comments
-Share
-Save
-Vote
-r/TranscribersOfReddit
-•Posted by
-u/transcribersofreddit
-1 hour ago
-technicallythetruth | Image | "yup (think about it before u ban me pls its about the things that make u abeled to draw straight lines)"
-Unclaimed
-reddit.com/r/tech...
-Join
-1 Comment
-Share
-Save
-1
-r/TranscribersOfReddit
-•Posted by
-u/transcribersofreddit
-7 hours ago
-traaaaaaannnnnnnnnns | Image | "You'll always be trans enough"
-Unclaimed
-reddit.com/r/traa...
-Join
-3 Comments
-Share
-Save
-4.5k
-r/thalassophobia
-•Posted by
-u/PBibbs_00
+u/Josh13241000
 13 hours ago
+4
 Join
-People do this for fun?!
-162 Comments
+What’s an annoying thing people base their entire personality around?
+6.8k Comments
 Share
 Save
-832
+41.5k
+r/baseball
+•Posted by
+u/AlexanderWun
+11 hours ago
+6
+2
+13
+& 175 More
+Join
+ALBERT PUJOLS Mr. 700
+The Thread
+0:00
+0:28
+3.5k Comments
+Share
+Save
+17.4k
+r/nba
+•Posted by
+u/urfaselol
+20 hours ago
+4
+3
+& 5 More
+Join
+Matt Barnes: "I spoke on Ime Udoka's defense and after finding out the facts I erased what I posted because this situation in Boston is deep, messy and 100 times uglier than any of us thought. Some things happened I can't condone. It's not my place to tell you what happened."
+streamable.com/wtfsyq
+3.3k Comments
+Share
+Save
+24.8k
+r/worldnews
+•Posted by
+u/Affectionate_Run_799
+9 hours ago
+2
+Zelensky says he's 'shocked' by lack of Israeli arms support: 'They gave us nothing'
+Russia/Ukraine
+timesofisrael.com/zelens...
+Join
+2.8k Comments
+Share
+Save
+44.7k
 r/wholesomememes
 •Posted by
-u/Zaboo_007
-5 hours ago
+u/taylorfreebird
+3 hours ago
+3
+5
+4
 Join
-She has got a Best Friend for life
-8 Comments
+bark bark!!
+115 Comments
+Share
+Save
+11.2k
+r/NoStupidQuestions
+•Posted by
+u/Gutter_Dove
+18 hours ago
+2
+Join
+Why, in Canada, were activists fighting for women to wear a hijab, while in Iran - they're fighting for women to not wear the hijab?
+
+I know. Am Stupid. Just can't quite grasp why they fight to wear it in Canada, but protest against it in Iran.
+
+2.5k Comments
 Share
 Save
 Advertisement
