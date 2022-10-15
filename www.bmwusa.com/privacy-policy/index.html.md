@@ -4,7 +4,6 @@ BMW USA
 Models
 All Models
 X1
-X2
 X3
 X4
 X5
@@ -31,7 +30,6 @@ DISCOVER
 Concept Vehicles
 Sports Activity Vehicles Learn More
 X1
-X2
 X3
 X4
 X5
@@ -97,6 +95,8 @@ Additional M Models
 M240i Coupe
 M240i xDrive Coupe
 M235i xDrive Gran Coupe
+M340i Sedan
+M340i xDrive Sedan
 M440i Coupe
 M440i xDrive Coupe
 M440i xDrive Gran Coupe
@@ -177,8 +177,7 @@ G. Privacy of Children
 
 We do not knowingly collect or use any personal information from children (we define 'children' as minors younger than 13) on our Sites without prior, verifiable parental consent. We do not knowingly allow children to order our products, communicate with us, or use any of our online services.
 
-If you become aware that a child has provided us with personal information, please contact us at privacy@bmwusa.com or write: BMW of North America, Privacy Office, PO Box 1227, Westwood NJ 07675-1227. We will take all reasonable measures to delete the information as soon as possible and to not use such information for any purpose, except where necessary to protect the safety of the child or others as required by law.
-
+If you become aware that a child has provided us with personal information, please contact us at myprivacy@bmwna.com or write: BMW of North America, Privacy Office, PO Box 1227, Westwood NJ 07675-1227. We will take all reasonable measures to delete the information as soon as possible and to not use such information for any purpose, except where necessary to protect the safety of the child or others as required by law.
 
 4. Links to Other Sites
 Though our Sites contain links to other sites, we are not responsible for the content, links or privacy on any of those sites. We recommend that you review the Privacy Policy applicable to those sites before accessing them.
