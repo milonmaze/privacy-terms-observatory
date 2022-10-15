@@ -1,107 +1,86 @@
 Found the internet!
 Trending today
-Starlink
-Elon Musk activates Starlink for Iranian citizens after US Sec of State issued a General License
-Tropical Depression 9
-Florida Gov. Ron DeSantis declares state of emergency over Tropical Depression 9
-r/news and more
-Albert Pujols
-Albert Pujols hits his 699th career home run!
-r/baseball and more
-Louise Fletcher
-Louise Fletcher Dies: Oscar-Winning ‘One Flew Over The Cuckoo’s Nest’ Actor Was 88
+Ted White
+Ted White – Jason Voorhees Actor from ‘Friday the 13th: The Final Chapter’ Has Passed Away
 r/movies and more
-John Cena
-John Cena breaks Make-A-Wish record after granting hundreds of wishes
+Covid Variant BQ.1
+"Pretty troublesome": New COVID variant BQ.1 now makes up 1 in 10 cases nationwide, CDC estimates
 r/news and more
-James Earl Jones
-James Earl Jones officially retires as the voice of Darth Vader from Star Wars
+Herschel Walker
+Herschel Walker flashes a fake badge during the Georgia senate debate.
+r/pics and more
+The Rings of Power
+The Lord of the Rings: The Rings of Power is the highest budget TV series per episode of all time; $58 million per episode, Stranger Things season 4 $30 million & Hawkeye 25 million
 r/television and more
+China Protests
+China says 'not aware of' anti-government protest in Beijing
+r/worldnews and more
+Russia-Ukraine War
+Biden administration authorizes $725 million in additional security assistance for Ukraine
+r/worldnews and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-5.7k
-r/AskReddit
+13.2k
+r/Funnymemes
 •Posted by
-u/Josh13241000
-13 hours ago
-4
-Join
-What’s an annoying thing people base their entire personality around?
-6.8k Comments
-Share
-Save
-41.5k
-r/baseball
-•Posted by
-u/AlexanderWun
-11 hours ago
-6
+u/Vayndetta
+16 hours ago
 2
-13
-& 175 More
 Join
-ALBERT PUJOLS Mr. 700
-The Thread
-0:00
-0:28
-3.5k Comments
+I saw a seal
+5.8k Comments
 Share
 Save
-17.4k
-r/nba
+34.4k
+r/nextfuckinglevel
 •Posted by
-u/urfaselol
-20 hours ago
-4
-3
-& 5 More
-Join
-Matt Barnes: "I spoke on Ime Udoka's defense and after finding out the facts I erased what I posted because this situation in Boston is deep, messy and 100 times uglier than any of us thought. Some things happened I can't condone. It's not my place to tell you what happened."
-streamable.com/wtfsyq
-3.3k Comments
-Share
-Save
-24.8k
-r/worldnews
-•Posted by
-u/Affectionate_Run_799
-9 hours ago
-2
-Zelensky says he's 'shocked' by lack of Israeli arms support: 'They gave us nothing'
-Russia/Ukraine
-timesofisrael.com/zelens...
-Join
-2.8k Comments
-Share
-Save
-44.7k
-r/wholesomememes
-•Posted by
-u/taylorfreebird
+u/amanyggvv
 3 hours ago
-3
-5
 4
+4
+& 2 More
 Join
-bark bark!!
-115 Comments
+This float representing the koalas that died as a result of the Black Summer bushfires and corruption in politics. Such an effective (and epic) activist message.
+0:00
+0:22
+1.3k Comments
 Share
 Save
-11.2k
-r/NoStupidQuestions
+9.6k
+r/funny
 •Posted by
-u/Gutter_Dove
-18 hours ago
+u/Tuna_Stubbs
+3 hours ago
+Join
+My wife says I’m difficult to buy presents for. So I made her a handy flowchart.
+309 Comments
+Share
+Save
+52.9k
+r/pics
+•Posted by
+u/Errorboros
+12 hours ago
+3
 2
 Join
-Why, in Canada, were activists fighting for women to wear a hijab, while in Iran - they're fighting for women to not wear the hijab?
-
-I know. Am Stupid. Just can't quite grasp why they fight to wear it in Canada, but protest against it in Iran.
-
-2.5k Comments
+Herschel Walker flashes a fake badge during the Georgia senate debate.
+Politics
+4.4k Comments
+Share
+Save
+6.3k
+r/UkrainianConflict
+•Posted by
+u/botbjng2828282
+6 hours ago
+Good catch in Norway: a Russian man detained at the border with 2 drones, 3 passports, and gigabites of video filmed over Norvegian energy infrastructure.
+twitter.com/mrkova...
+Join
+256 Comments
 Share
 Save
 Advertisement
