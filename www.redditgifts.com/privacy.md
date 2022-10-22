@@ -1,86 +1,122 @@
 Found the internet!
 Trending today
-Ted White
-Ted White – Jason Voorhees Actor from ‘Friday the 13th: The Final Chapter’ Has Passed Away
-r/movies and more
-Covid Variant BQ.1
-"Pretty troublesome": New COVID variant BQ.1 now makes up 1 in 10 cases nationwide, CDC estimates
-r/news and more
-Herschel Walker
-Herschel Walker flashes a fake badge during the Georgia senate debate.
-r/pics and more
-The Rings of Power
-The Lord of the Rings: The Rings of Power is the highest budget TV series per episode of all time; $58 million per episode, Stranger Things season 4 $30 million & Hawkeye 25 million
-r/television and more
-China Protests
-China says 'not aware of' anti-government protest in Beijing
-r/worldnews and more
-Russia-Ukraine War
-Biden administration authorizes $725 million in additional security assistance for Ukraine
-r/worldnews and more
+Starlink
+The University of Texas Hacked Starlink’s Signal So It Can Be Used as a GPS Alternative
+r/technology and more
+Hu Jintao
+Emperor Xi just had his predecessor Hu Jintao hauled out of the CCP summit on live TV in full view of everyone.
+r/interestingasfuck and more
+The Al Yankovic Story
+Weird: The Al Yankovic Story Involved 'Absolutely No Research on Al's Actual Life,' Director Says
+r/nottheonion and more
+Australia vs New Zealand
+Match Thread: 13th Match, Group 1 - Australia vs New Zealand
+r/Cricket and more
+Jordan Poole
+[Highlight] Jordan Poole gets a clutch steal and score after Bones Hyland is trapped but Jokic keeps his head in the game
+r/nba and more
+101st Airborne Division Training
+The U.S. Army's 101st Airborne is practicing for war with Russia just miles from Ukraine's border
+r/ukraine and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-13.2k
-r/Funnymemes
+9.9k
+r/gaming
 •Posted by
-u/Vayndetta
-16 hours ago
+u/supersaiyanvidel
+2 hours ago
+2
+2
 2
 Join
-I saw a seal
-5.8k Comments
+I’ve finally helped 2000 people defeat the final boss of Elden ring wearing nothing but a Jar helm. -LetMeSoloThem
+300 Comments
 Share
 Save
-34.4k
-r/nextfuckinglevel
+11.2k
+r/CasualUK
 •Posted by
-u/amanyggvv
+u/vela025
 3 hours ago
-4
-4
-& 2 More
+2
 Join
-This float representing the koalas that died as a result of the Black Summer bushfires and corruption in politics. Such an effective (and epic) activist message.
-0:00
-0:22
-1.3k Comments
+After 18 years of faithful service, this morning she spun her last spin. RIP 1994-2022
+736 Comments
 Share
 Save
-9.6k
-r/funny
+26.2k
+r/AskReddit
 •Posted by
-u/Tuna_Stubbs
-3 hours ago
+u/vjenkinsgo
+12 hours ago
+7
+10
 Join
-My wife says I’m difficult to buy presents for. So I made her a handy flowchart.
-309 Comments
+What's a subtle sign of low intelligence?
+18.8k Comments
 Share
 Save
-52.9k
+907
+r/Cricket
+•Posted by
+u/CricketMatchBot
+8 hours ago
+2
+2
+Join
+Match Thread: 13th Match, Group 1 - Australia vs New Zealand
+13th Match, Group 1, ICC Men's T20 World Cup at Sydney
+
+Post Match | Cricinfo | Reddit-Stream | 🌧 🌧 🌧 🌧 🌧
+
+Innings	Score
+New Zealand	200/3 (Ov 20/20)
+Australia	111 (Ov 17.1/20)
+
+
+
+
+Batter	Runs	Balls	SR
+Josh Hazlewood*	1	1	100.0Bowler	Overs	Runs	Wickets
+Tim Southee	2.1	6	3
+Trent Boult	4	24	2
+Recent : . 1 1 1w 1lb 1 1  |  4 6 . 1 . 1  |  W . W 1 . 1  |  W 
+
+
+New Zealand won by 89 runs
+
+Live match threads: Dolphins vs Boland | Afghanistan vs England |
+
+Send feedback | Schedule | Stat Help
+
+Please don't post illegal streaming links in match threads
+
+9.9k Comments
+Share
+Save
+30.3k
 r/pics
 •Posted by
-u/Errorboros
-12 hours ago
-3
-2
+u/MeboyFinnegan
+18 hours ago
 Join
-Herschel Walker flashes a fake badge during the Georgia senate debate.
-Politics
+Unsolicited mail. Gummies and mystery capsules
 4.4k Comments
 Share
 Save
-6.3k
-r/UkrainianConflict
+19.2k
+r/politics
 •Posted by
-u/botbjng2828282
-6 hours ago
-Good catch in Norway: a Russian man detained at the border with 2 drones, 3 passports, and gigabites of video filmed over Norvegian energy infrastructure.
-twitter.com/mrkova...
+u/ajax55
+14 hours ago
+& 2 More
+Court temporarily blocks Biden's student loan forgiveness
+apnews.com/articl...
 Join
-256 Comments
+3.2k Comments
 Share
 Save
 Advertisement
