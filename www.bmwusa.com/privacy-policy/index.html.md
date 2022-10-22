@@ -40,6 +40,8 @@ X4 M
 X5 M
 X6 M
 iX
+XM:
+Pre-Order
 Sedans & Gran Coupes
 2
 3
@@ -73,6 +75,7 @@ Plug-in Hybrids Learn More
 X5 xDrive45e
 330e Sedan
 530e Sedan
+XM: Pre-Order Now
 LEARN
 BMW Charging
 DISCOVER
@@ -91,6 +94,7 @@ X3 M
 X4 M
 X5 M
 X6 M
+XM: Pre-Order Now
 Additional M Models
 M240i Coupe
 M240i xDrive Coupe
