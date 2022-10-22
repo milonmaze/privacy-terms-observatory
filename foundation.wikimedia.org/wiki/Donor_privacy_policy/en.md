@@ -1,7 +1,10 @@
 Jump to content
-< Donor privacy policy
+(Redirected from Donor privacy policy/en)
+Translate this page
+	
+Please note that in the event of any differences in meaning or interpretation between the original English version of this content and a translation, the original English version takes precedence.
+Other languages:	Afrikaans Deutsch English Nederlands català dansk español español de América Latina français italiano latviešu magyar norsk bokmål polski português português do Brasil română slovenčina svenska русский українська עברית العربية 中文（简体） 中文（繁體） 日本語
 This page documents the Wikimedia Foundation's donor privacy policy. You can make a donation to the Wikimedia Foundation at donate.wikimedia.org.
-English العربية català dansk Deutsch español español de América Latina français עברית magyar italiano 日本語 latviešu norsk bokmål Nederlands polski português português do Brasil română русский slovenčina svenska українська 中文（简体） 中文（繁體）
 Welcome!
 
 Welcome to the Wikimedia Foundation's Donor Privacy Policy. The Wikimedia Foundation ("WMF") has put this policy in place to protect the privacy rights of our donors. We recognize that our donors care deeply about how their personal information is used and shared, and we value the privacy and security of our donors. This Donor Privacy Policy addresses our practices for collecting, using, maintaining, protecting, and disclosing donor information. Please carefully read this policy together with our Terms of Use. We will never sell, trade, or rent your nonpublic personal information.
@@ -107,9 +110,9 @@ To enhance your experience with Wikimedia Fundraising Services, we use your geog
 
 Accessing Your Donor Information
 
-WMF works hard to accurately process and maintain Donor Information. If you would like to request to access, correct, update, suppress, restrict or delete the Personal Information we have about you, object to our processing of such Personal Information, or if you would like to request to receive an electronic copy of your Personal Information for purposes of transmitting it to another organization (to the extent this right to data portability is provided to you by applicable law), please let us know by contacting us at donate@wikimedia.org. While we will make reasonable efforts to comply with your request consistent with applicable law, there are certain situations where we may not grant your request (such as when we cannot adequately verify your identity to give you access to Personal Information, when we are legally required to retain information, or when we are not technologically able to change or delete information at that time).
+WMF works hard to accurately process and maintain Donor Information. If you would like to request to access, correct, update, suppress, restrict or delete the Personal Information we have about you, object to our processing of such Personal Information, or if you would like to request to receive an electronic copy of your Personal Information for purposes of transmitting it to another organization (to the extent this right to data portability is provided to you by applicable law), please let us know by contacting us at donatewikimediaorg. While we will make reasonable efforts to comply with your request consistent with applicable law, there are certain situations where we may not grant your request (such as when we cannot adequately verify your identity to give you access to Personal Information, when we are legally required to retain information, or when we are not technologically able to change or delete information at that time).
 
-All emails sent relating to Wikimedia Fundraising Services (with the exception of receipts or administrative notices) include an easy option to unsubscribe. If you would like to change your communication preferences, you (or an authorized representative) can let us know by contacting us at donate@wikimedia.org at any time, or clicking the unsubscribe link in an email you receive from us.
+All emails sent relating to Wikimedia Fundraising Services (with the exception of receipts or administrative notices) include an easy option to unsubscribe. If you would like to change your communication preferences, you (or an authorized representative) can let us know by contacting us at donatewikimediaorg at any time, or clicking the unsubscribe link in an email you receive from us.
 
 Sharing Donor Information
 
@@ -155,9 +158,9 @@ Your continued use of the Wikimedia Fundraising Services after any effective dat
 
 Contact Us
 
-WMF values what our donors have to say about our services and our policies. If you have questions or suggestions about this policy, or the information collected under the Donor Privacy Policy, we want to hear from you. Please email us at donor@wikimedia.org or contact us directly. For more information about the privacy practices that govern the Wikimedia projects, please review our main Privacy Policy.
+WMF values what our donors have to say about our services and our policies. If you have questions or suggestions about this policy, or the information collected under the Donor Privacy Policy, we want to hear from you. See our Contact Us page for information on how to reach out. For more information about the privacy practices that govern the Wikimedia projects, please review our main Privacy Policy.
 
-If you are located in the European Economic Area and have questions about your personal data or would like to request to access, update, or delete it, you may contact our representative via email at EUrepresentative.Wikimedia@twobirds.com, or via mail at:
+If you are located in the European Economic Area and have questions about your personal data or would like to request to access, update, or delete it, you may contact our representative via email at EUrepresentative.Wikimediatwobirdscom, or via mail at:
 
 Bird & Bird GDPR Representative Ireland
 29 Earlsfort Terrace
@@ -166,7 +169,7 @@ D02 AY28
 Ireland
 Main point of contact: Vincent Rezzouk-Hammachi
 
-If you are an individual located in the United Kingdom, and have questions about your personal data or would like to request to access, update, or delete it, you may contact our representative via email at UKrepresentative.Wikimedia@twobirds.com, or via mail at:
+If you are an individual located in the United Kingdom, and have questions about your personal data or would like to request to access, update, or delete it, you may contact our representative via email at UKrepresentative.Wikimediatwobirdscom, or via mail at:
 
 Bird & Bird GDPR Representative Services UK
 12 New Fetter Lane
@@ -193,4 +196,4 @@ Donor Privacy Policy (2009)
 
 Please note that in the event of any differences in meaning or interpretation between the original English version of this Donor Privacy Policy and a translation, the original English version takes precedence.
 
-Category: Policies
+Category: Policies/en
