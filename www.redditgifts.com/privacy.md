@@ -1,122 +1,158 @@
 Found the internet!
 Trending today
-Starlink
-The University of Texas Hacked Starlink’s Signal So It Can Be Used as a GPS Alternative
+Nord Stream Pipelines
+Russia says British navy personnel blew up Nord Stream gas pipelines
+r/worldnews and more
+MLB World Series
+[Highlight] Robertson gets the final out as the Phillies take game 1 of the World Series over the Astros!
+r/baseball and more
+Greg Abbott
+Gov. Abbott to Blame for Billions in High Electric Prices, Former Grid CEO Says | The former head of Texas' power grid said a decision to keep electricity prices high during last year's storm came from the governor.
 r/technology and more
-Hu Jintao
-Emperor Xi just had his predecessor Hu Jintao hauled out of the CCP summit on live TV in full view of everyone.
-r/interestingasfuck and more
-The Al Yankovic Story
-Weird: The Al Yankovic Story Involved 'Absolutely No Research on Al's Actual Life,' Director Says
-r/nottheonion and more
-Australia vs New Zealand
-Match Thread: 13th Match, Group 1 - Australia vs New Zealand
-r/Cricket and more
-Jordan Poole
-[Highlight] Jordan Poole gets a clutch steal and score after Bones Hyland is trapped but Jokic keeps his head in the game
-r/nba and more
-101st Airborne Division Training
-The U.S. Army's 101st Airborne is practicing for war with Russia just miles from Ukraine's border
-r/ukraine and more
+Midterm Elections
+AOC and Raskin on stakes of midterms: We are 'facing an environment of fascism'
+r/politics and more
+Halloween Costumes
+My Halloween costume
+r/pics and more
+Russia-Ukraine War
+Russian billionaire behind mercenary army in Ukraine confronted Putin about botching the war, report says
+r/worldnews and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-9.9k
-r/gaming
+10.6k
+r/AskHistorians
 •Posted by
-u/supersaiyanvidel
-2 hours ago
-2
-2
-2
+u/crrpit
+22 hours ago
+3
+3
+3
 Join
-I’ve finally helped 2000 people defeat the final boss of Elden ring wearing nothing but a Jar helm. -LetMeSoloThem
-300 Comments
+AskHistorians has hit 1.5 million subscribers! To celebrate, we’re giving away 1.5 million historical facts. Join us HERE to claim your free fact!
+Meta
+
+How does this subreddit have any subscribers? Why does it exist if no questions ever actually get answers? Why are the mods all Nazis/Zionists/Communists/Islamic extremists/really, really into Our Flag Means Death?
+
+
+
+
+The answers to these important historical questions AND MORE are up for grabs today, as we celebrate our unlikely existence and the fact that 1.5 million people vaguely approve of it enough to not click ‘Unsubscribe’. We’re incredibly grateful to all past and present flairs, question-askers, and lurkers who’ve made it possible to sustain and grow the community to this point. None of this would be possible without an immense amount of hard work from any number of people, and to celebrate that we’re going to make more work for ourselves.
+
+
+
+
+The rules of our giveaway are simple*. You ask for a fact, you receive a fact, at least up until the point that all 1.5 million historical facts that exist have been given out.
+
+
+
+
+* The fine print:
+
+1. AskHistorians does not guarantee the quality, relevance or interestingness of any given fact.
+
+2. All facts remain the property of historians in general and AskHistorians in particular.
+
+3. While you may request a specific fact, it will not necessarily have any bearing on the fact you receive.
+
+4. Facts will be given to real people only. Artificial entities such as u/gankom need not apply.
+
+5. All facts are NFTs, in that no one is ever likely to want to funge them and a token amount of effort has been expended in creating them.
+
+6. Receiving a fact does not give you the legal right to adapt them on screen.
+
+7. Facts, once issued, cannot be exchanged or refunded. They are, however, recyclable.
+
+8. We reserve the right to get bored before we exhaust all 1.5 million facts.
+
+Edit: As of 14:49 EST, AskHistorians has given away over 500 bespoke, handcrafted historical facts! Only 1,499,500 to go!
+
+Edit 2: As of 17:29 EST, it's really damn hard to count but pretty sure we cracked 1,000. That's almost 0.1% of the goal!
+
+Edit 3: I should have turned off notifications last night huh. Facts are still being distributed, but in an increasingly whimsical and inconsistent fashion.
+
+6.6k Comments
 Share
 Save
-11.2k
-r/CasualUK
+39.1k
+r/news
 •Posted by
-u/vela025
-3 hours ago
+u/BigfootDynamite
+16 hours ago
 2
+Pelosi's husband underwent successful surgery to repair skull fracture -statement
+Soft paywall
+reuters.com/world/...
 Join
-After 18 years of faithful service, this morning she spun her last spin. RIP 1994-2022
-736 Comments
+3.5k Comments
 Share
 Save
-26.2k
+3.8k
 r/AskReddit
 •Posted by
-u/vjenkinsgo
-12 hours ago
-7
-10
+u/2jbk
+7 hours ago
 Join
-What's a subtle sign of low intelligence?
-18.8k Comments
+What’s your main reason for not having more sex?
+nsfw
+4.8k Comments
 Share
 Save
-907
-r/Cricket
+60.6k
+r/technology
 •Posted by
-u/CricketMatchBot
-8 hours ago
-2
-2
+u/omgmeric
+19 hours ago
+3
+3
+& 8 More
+Since rebranding as Meta, Facebook's parent company has hopped from crisis to crisis. They're now worth less than Home Depot.
+Social Media
+globalnews.ca/news/9...
 Join
-Match Thread: 13th Match, Group 1 - Australia vs New Zealand
-13th Match, Group 1, ICC Men's T20 World Cup at Sydney
-
-Post Match | Cricinfo | Reddit-Stream | 🌧 🌧 🌧 🌧 🌧
-
-Innings	Score
-New Zealand	200/3 (Ov 20/20)
-Australia	111 (Ov 17.1/20)
-
-
-
-
-Batter	Runs	Balls	SR
-Josh Hazlewood*	1	1	100.0Bowler	Overs	Runs	Wickets
-Tim Southee	2.1	6	3
-Trent Boult	4	24	2
-Recent : . 1 1 1w 1lb 1 1  |  4 6 . 1 . 1  |  W . W 1 . 1  |  W 
-
-
-New Zealand won by 89 runs
-
-Live match threads: Dolphins vs Boland | Afghanistan vs England |
-
-Send feedback | Schedule | Stat Help
-
-Please don't post illegal streaming links in match threads
-
-9.9k Comments
+3.5k Comments
 Share
 Save
-30.3k
-r/pics
+50.9k
+r/wallstreetbets
 •Posted by
-u/MeboyFinnegan
+u/Infamous_Sympathy_91
 18 hours ago
+2
+5
+4
+& 4 More
 Join
-Unsolicited mail. Gummies and mystery capsules
-4.4k Comments
+That look when you realise it's time to update your CVs
+Meme
+2.9k Comments
 Share
 Save
-19.2k
-r/politics
+27.2k
+r/PublicFreakout
 •Posted by
-u/ajax55
-14 hours ago
-& 2 More
-Court temporarily blocks Biden's student loan forgiveness
-apnews.com/articl...
+u/Ok-Photograph3099
+19 hours ago
 Join
-3.2k Comments
+Harassed for using the bathroom. Thoughts?? 💭
+2.8k Comments
+Share
+Save
+14.9k
+r/technology
+•Posted by
+u/Breemiasa
+4 hours ago
+2
+2
+Gov. Abbott to Blame for Billions in High Electric Prices, Former Grid CEO Says | The former head of Texas' power grid said a decision to keep electricity prices high during last year's storm came from the governor.
+Business
+gizmodo.com/gov-ab...
+Join
+611 Comments
 Share
 Save
 Advertisement
