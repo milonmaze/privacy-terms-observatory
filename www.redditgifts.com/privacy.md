@@ -1,110 +1,90 @@
 Found the internet!
 Trending today
-Starlink
-Starlink adds a 1TB monthly soft cap for residential users
-r/technology and more
-Overwatch 2
-Ramattra Origin Story | Overwatch 2
-r/Overwatch and more
-Kyrie Irving
-Nike suspends relationship with Kyrie Irving; Kyrie 8 launch off
-r/sports and more
-Sri Lanka vs England
-Post Match Thread: Sri Lanka vs England
-r/Cricket and more
-New York Drone Show
-Backlash after 500 drones light up New York City sky to celebrate Candy Crush | New York
+Jan. 6 Subpoena
+Trump files lawsuit to avoid Jan. 6 committee subpoena
+r/CapitolConsequences and more
+Mark Kelly
+Democratic Sen. Mark Kelly re-elected in Arizona, defeating Republican Blake Masters
+r/politics and more
+Banksy Artwork
+Banksy artwork appears on damaged building in Ukraine | Banksy
+r/entertainment and more
+Disney Job Cuts
+Disney plans targeted hiring freeze and job cuts, according to a memo from CEO Bob Chapek
 r/news and more
-US Bombers
-US to fly supersonic bomber in show of force against NKorea
-r/worldnews and more
+Women's Rugby World Cup
+New Zealand 34-31 England: Hosts win Rugby World Cup with dramatic victory over Red Roses in Auckland
+r/sports and more
+Alec Baldwin
+Alec Baldwin files lawsuit for ‘Rust’ shooting, accuses crew of negligence
+r/entertainment and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-42.2k
-r/facepalm
+32.5k
+r/nextfuckinglevel
 •Posted by
-u/atul_stormypetrel
-5 hours ago
-2
+u/_Im_Dad
+3 hours ago
+& 19 More
 Join
-Verified twitter users impersonating Elon Musk is getting out of control😂
- 🇲​🇮​🇸​🇨​
-1.7k Comments
+A kid's pet dog saves him from a dog attack
+0:00
+0:22
+1.6k Comments
 Share
 Save
-7.9k
+31.4k
+r/therewasanattempt
+•Posted by
+u/CompetitiveBison2093
+15 hours ago
+2
+3
+6
+Join
+to discredit the fuzz
+0:00
+3:15
+6.0k Comments
+Share
+Save
+13.1k
 r/AskReddit
 •Posted by
-u/zfreeman
-6 hours ago
-2
-& 4 More
-Join
-What is awesome, has always been awesome, and will forever be awesome?
-5.0k Comments
-Share
-Save
-35.2k
-r/nba
-•Posted by
-u/Tomheza
-14 hours ago
-2
-& 68 More
-[Charania] Nike announces the company is suspending its relationship with Kyrie Irving, effective immediately, and will no longer launch his new Kyrie 8.
-twitter.com/ShamsC...
-Join
-4.0k Comments
-Share
-Save
-57.5k
-r/news
-•Posted by
-u/HelpMeWithMyHWpls
-13 hours ago
-2
-4
-Tesla stock has dropped more than 35% since Elon Musk first said he'd buy Twitter
-cnbc.com/2022/1...
-Join
-3.8k Comments
-Share
-Save
-14.9k
-r/funny
-•Posted by
-u/EndOfTheGolden
-4 hours ago
-Join
-Went to a cafe at Easter. Was asked if I’d like a bunny rabbit latte art. Said I’d prefer a lady with big boobs…
-nsfw
-284 Comments
-Share
-Save
-71.1k
-r/politics
-•Posted by
-u/PSTHTontard
+u/SirTacoBill
 18 hours ago
 4
-6
-& 15 More
-Supreme Court again declines to block Biden’s student loan relief plan
-cnbc.com/2022/1...
+4
 Join
-3.2k Comments
+What gets grosser the longer you think about it?
+nsfw
+7.0k Comments
 Share
 Save
-21.5k
-r/oddlysatisfying
+12.8k
+r/FuckYouKaren
 •Posted by
-u/Adrian-Wapcaplet
-6 hours ago
+u/KalabraxTheWicked
+4 hours ago
 Join
-Letting the sheep in
+Karen spotted
+Karen
+246 Comments
+Share
+Save
+28.9k
+r/HolUp
+•Posted by
+u/Hardcore-Truth
+5 hours ago
+3
+2
+Join
+prank caused 15 billion $
+SEE FULL IMAGE
 1.0k Comments
 Share
 Save
