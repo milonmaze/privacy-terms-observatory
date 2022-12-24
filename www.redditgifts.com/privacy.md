@@ -1,75 +1,108 @@
 Found the internet!
 Trending today
-Jan. 6 Committee
-Jan. 6 panel to vote on urging DOJ to prosecute Trump for at least three criminal charges
-r/politics and more
-Elon Musk Jet Tracker
-A new subreddit dedicated to the Elon Musk jet tracker is one of the fastest-growing pages on the website, with almost 40,000 members in 2 days
-r/ElonJetTracker and more
-SpaceX Falcon 9 Launch
-A portion of todays SpaceX Falcon 9 rocket launch from my window while on a flight from BWI to Middle GA
-r/space and more
-John Carmack
-John Carmack is leaving Meta
-r/technology and more
-Crimea
-Explosions rock occupied Crimea, Russia’s Belgorod and Kursk
-r/ukraine and more
-Twitter Funding
-Elon Musk Seeks Additional Funds for Twitter
+Twitter
+Reuters: Elon Musk orders removal of Twitter suicide prevention feature, sources say
+r/news and more
+Tory Lanez
+Rapper Tory Lanez Guilty in Shooting of Megan Thee Stallion
+r/entertainment and more
+Dogs
+A coworkers relative got this pup without consulting the wife and couldn’t keep it so I swooped in to take him in. First family dog and my wife and daughter are ecstatic. Christmas hero.
+r/aww and more
+Winter Storms
+Factbox: About 1.2 million without power in United States from winter storms
+r/news and more
+Meta
+Meta settles Cambridge Analytica scandal case for $725m
+r/technews and more
+Mall of America Shooting
+Mall of America on lockdown due to active shooter.
 r/news and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-22.1k
-r/pics
-•Posted by
-u/5thCharmer
-6 hours ago
-2
-Join
-Tribal rep George Gillette crying as 154,000 acres of land is signed away for a new dam (1948)
-i.imgur.com/X8Wrm0...
-1.3k Comments
+614k
+r/memes
+LIVE
+· 1.2m players
+& 197 More
+R/MEMES MEME QUIZ #2
+PREDICTION
+What is the most popular meme'd news/media story of 2022?
+You must be logged in
+Crypto Crash
+UK Politics/Monarchy
+Elon Musk buying Twitter
+FIFA World Cup 2022
+Amber Heard vs Johnny Depp trial
+Ukraine vs Russia
+See What Others Predicted
+PREDICTION
+What is the most popular meme topic of 2022?
+You must be logged in
+Will Smith Slapping Chris Rock
+Ghost staring - Call of Duty
+Morbius Memes
+Patrick Bateman - American Psycho
+Better Call Saul
+Homelander - The Boys
+See What Others Predicted
+0 of 2 predicted
+4.8k Comments
 Share
 Save
-49.1k
-r/facepalm
+163k
+r/movies
 •Posted by
-u/sotobet0509
-17 hours ago
+u/officialtobeymaguire
+18 hours ago
+4
 2
 5
-& 2 More
+& 174 More
 Join
-Flat earth believer trying to explain how it works
- 🇲​🇮​🇸​🇨​
-7.5k Comments
+Hi, I’m Tobey Maguire, actor/executive producer of BABYLON and occasional superhero. AMA!
+AMA
+16.4k Comments
 Share
 Save
-6.9k
-r/aww
+16.5k
+r/AskReddit
 •Posted by
-u/Lil_Jazzy
-3 hours ago
+u/el_K4kas
+17 hours ago
+2
+2
 Join
-Baby deer...so tiny
-111 Comments
+What is something acceptable in women but frowned upon in men?
+11.4k Comments
 Share
 Save
-58.4k
-r/mildlyinfuriating
+54.3k
+r/therewasanattempt
 •Posted by
-u/KyleK86
-16 hours ago
-4
-4
-4
+u/Dzargok
+14 hours ago
+5
+5
+6
+& 3 More
 Join
-How do I start clearing my balcony without getting snow all over the carpet
-7.0k Comments
+to protest
+5.6k Comments
+Share
+Save
+57.0k
+r/Damnthatsinteresting
+•Posted by
+u/TickleMonster528
+12 hours ago
+Join
+Currently over 90% of the intercontinental US is experiencing freezing temperatures
+Image
+5.4k Comments
 Share
 Save
 Advertisement
