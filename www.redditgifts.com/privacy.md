@@ -1,108 +1,122 @@
 Found the internet!
 Trending today
-Twitter
-Reuters: Elon Musk orders removal of Twitter suicide prevention feature, sources say
+Pope Benedict XVI
+Former Pope Benedict XVI dies at 95
+r/worldnews and more
+Barbara Walters
+barbara walters conducting a crazy ass interview, 1977
+r/interestingasfuck and more
+New Year's Eve
+It maybe a bit early for everyone else but Happy New Year's from us Kiwi's over here. Bring on 2023.
+r/pics and more
+LeBron James
+[Highlight] LeBron earns MVP chants in Atlanta as he makes the FTs to give him 47 for the night
+r/nba and more
+Elon Musk
+Elon Musk Becomes First Person Ever To Lose $200 Billion
 r/news and more
-Tory Lanez
-Rapper Tory Lanez Guilty in Shooting of Megan Thee Stallion
-r/entertainment and more
-Dogs
-A coworkers relative got this pup without consulting the wife and couldn’t keep it so I swooped in to take him in. First family dog and my wife and daughter are ecstatic. Christmas hero.
-r/aww and more
-Winter Storms
-Factbox: About 1.2 million without power in United States from winter storms
-r/news and more
-Meta
-Meta settles Cambridge Analytica scandal case for $725m
-r/technews and more
-Mall of America Shooting
-Mall of America on lockdown due to active shooter.
+Arizona Abortion Law
+Court: Abortion doctors can’t be charged under Arizona law
 r/news and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-614k
-r/memes
-LIVE
-· 1.2m players
-& 197 More
-R/MEMES MEME QUIZ #2
-PREDICTION
-What is the most popular meme'd news/media story of 2022?
-You must be logged in
-Crypto Crash
-UK Politics/Monarchy
-Elon Musk buying Twitter
-FIFA World Cup 2022
-Amber Heard vs Johnny Depp trial
-Ukraine vs Russia
-See What Others Predicted
-PREDICTION
-What is the most popular meme topic of 2022?
-You must be logged in
-Will Smith Slapping Chris Rock
-Ghost staring - Call of Duty
-Morbius Memes
-Patrick Bateman - American Psycho
-Better Call Saul
-Homelander - The Boys
-See What Others Predicted
-0 of 2 predicted
+32.7k
+r/AskReddit
+•Posted by
+u/Ermland2
+22 hours ago
+3
+2
+& 5 More
+Join
+What’s an obvious sign someone’s american?
+33.8k Comments
+Share
+Save
+50.4k
+r/facepalm
+•Posted by
+u/FuturisticFighting
+19 hours ago
+3
+4
+2
+Join
+Guy blatantly stealing through self check
+ 🇲​🇮​🇸​🇨​
+10.4k Comments
+Share
+Save
+13.5k
+r/atheism
+•Posted by
+u/shrigay
+4 hours ago
+3
+2
+& 17 More
+Pope Benedict XVI, a former member of Hitler Youth, an extreme homophobe who called gay marriage a "threat to world peace", opposed condoms to prevent HIV and shielded pedo priests despite knowing they abused kids, DIES at 95
+/r/all
+edition.cnn.com/2022/1...
+Join
+676 Comments
+Share
+Save
+19.0k
+r/worldnews
+•Posted by
+u/Mistermiyagi93
+4 hours ago
+2
+Former Pope Benedict XVI dies at 95
+bbc.co.uk/news/w...
+Join
+2.1k Comments
+Share
+Save
+46.4k
+r/pics
+•Posted by
+u/greygrayman
+21 hours ago
+2
+Join
+Mugshot of Man arrested for Idaho Student Murders - Bryan Christopher Kohberger
+6.7k Comments
+Share
+Save
+119k
+r/meirl
+•Posted by
+u/lankancookie
+16 hours ago
+4
+5
+2
+Join
+meirl
 4.8k Comments
 Share
 Save
-163k
-r/movies
+8.3k
+r/OutOfTheLoop
 •Posted by
-u/officialtobeymaguire
-18 hours ago
-4
-2
-5
-& 174 More
+u/Quiet-Display7689
+21 hours ago
 Join
-Hi, I’m Tobey Maguire, actor/executive producer of BABYLON and occasional superhero. AMA!
-AMA
-16.4k Comments
-Share
-Save
-16.5k
-r/AskReddit
-•Posted by
-u/el_K4kas
-17 hours ago
-2
-2
-Join
-What is something acceptable in women but frowned upon in men?
-11.4k Comments
-Share
-Save
-54.3k
-r/therewasanattempt
-•Posted by
-u/Dzargok
-14 hours ago
-5
-5
-6
-& 3 More
-Join
-to protest
-5.6k Comments
-Share
-Save
-57.0k
-r/Damnthatsinteresting
-•Posted by
-u/TickleMonster528
-12 hours ago
-Join
-Currently over 90% of the intercontinental US is experiencing freezing temperatures
-Image
-5.4k Comments
+What is the deal with everyone seemingly hating the Rock all of a sudden?
+ Unanswered
+
+I thought he was one of the few benevolent hollywood personalities everyone adored, sort of like Keanu Reeves. Other than some past stuff this is the only recent sort of negative press I could find...
+
+https://thedirect.com/article/dwayne-johnson-black-adam-profits-misleading
+
+Is there something more to it?
+
+2.6k Comments
 Share
 Save
 Advertisement
