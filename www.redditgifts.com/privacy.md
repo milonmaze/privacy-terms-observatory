@@ -1,81 +1,76 @@
 Found the internet!
 Trending today
-Speaker of the House Election
-Megathread: The US House of Representatives Selects Kevin McCarthy as Speaker
-r/politics and more
-South Sudan
-Six journalists arrested over footage of South Sudan president wetting himself
+Velma
+Velma Currently Has A 8 Percent Audience Score On Rotten Tomatoes.
+r/entertainment and more
+Iowa Voter Fraud
+Iowa official's wife charged with 52 counts of voter fraud
+r/news and more
+Bird Flu Outbreak
+Largest global bird flu outbreak ‘in history’ shows no sign of slowing
 r/worldnews and more
-Alex Pereira
-Alex Pereira brings his UFC belt back to tribe in Brazil
-r/MMA and more
-Green Comet
-Trevor Bauer
-[Toribio] Trevor Bauer releases his statement. States that he and the #Dodgers met yesterday in Arizona and they "wanted me to return and pitch for the team this year."
-r/baseball and more
-Virginia School Shooting
-6-year-old shot teacher at Newport News, Virginia, elementary school, police say
+Friday the 13th
+Celebrating Friday the 13th with this spooky guy
+r/blackcats and more
+Golden State Warriors vs. San Antonio Spurs
+[Highlight] The view for some fans at the Alamodome during the Spurs vs Warriors game
+r/nba and more
+Elon Musk
+Elon Musk-funded nonprofit run by MIT professor offered to finance Swedish pro-nazi group
 r/news and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-Vote
-r/Art
-•Posted by
-u/gr1imly
-1 hour ago
-4
-3
-& 3 More
-Join
-artistic integrity is under attack, me, digital, 2023
-Artwork
-104 Comments
-Share
-Save
-78.7k
-r/meirl
-•Posted by
-u/JAVA-NANI
-22 hours ago
-Join
-Meirl
-15.6k Comments
-Share
-Save
-14.6k
+42.5k
 r/AskReddit
 •Posted by
-u/OGWhiz
-19 hours ago
+u/lukiiiiii
+23 hours ago
 Join
-If band names were literal, what would be the best/worst concerts to attend?
-15.4k Comments
+What quietly went away without anyone noticing?
+41.2k Comments
 Share
 Save
-15.4k
-r/Funnymemes
+9.4k
+r/me_irl
 •Posted by
-u/Suitable_Hold_5030
-19 hours ago
+u/dankbuckeyes
+5 hours ago
 Join
-😗
-13.2k Comments
+me_irl
+167 Comments
 Share
 Save
-56.2k
-r/facepalm
+43.5k
+r/WhitePeopleTwitter
 •Posted by
-u/IdkWhatImEvenDoing69
-20 hours ago
-2
-2
+u/FarmSuch5021
+23 hours ago
 Join
-London girl angry after being told to not vape on the train
-🇵​🇷​🇴​🇹​🇪​🇸​🇹​
-7.6k Comments
+Is this flag offensive?
+12.4k Comments
+Share
+Save
+4.4k
+r/memes
+•Posted by
+u/MonsterUnderBlanket
+2 hours ago
+Join
+it's the heaven for them
+152 Comments
+Share
+Save
+38.0k
+r/pics
+•Posted by
+u/LarryJr-K
+16 hours ago
+Join
+A friend got taken hard today. Passed the acid test, magnet test and is stamped 18k. Scammed of 4K.
+6.9k Comments
 Share
 Save
 Advertisement
