@@ -274,7 +274,7 @@ Ireland
 Singapore
 New Zealand
 India
-© 2022 Houzz Inc.
+© 2023 Houzz Inc.
 COMPANY
 About Houzz
 Houzz Credit Cards
@@ -283,7 +283,7 @@ Careers
 Privacy & Notice
 Terms
 Cookie Policy
-Do not sell my info
+Do not sell or share my info
 Mobile Apps
 Copyright & Trademark
 BUSINESS SERVICES
