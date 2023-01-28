@@ -7,7 +7,6 @@ If you’re having technical issues, please give us a call.
 24 hours a day / 7 days a week.
 
 Savings & Insights customers: 1-855-730-7283
-Personal Loans & MarcusPay: 1-844-627-2872
 GM Rewards Cards customers: 1-833-773-0988
 GM Business Cards customers: 1-833-773-0990
 
