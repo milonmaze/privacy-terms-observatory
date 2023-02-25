@@ -1,89 +1,100 @@
 Found the internet!
 Trending today
-Twitter Blue
-Security behind a paywall | Only Twitter Blue subscribers can opt for SMS based 2FA
-r/assholedesign and more
-Cats
-Another amazing human cat duet
-r/MadeMeSmile and more
-Christian Atsu
-RIP to former Chelsea player Christian Atsu.
-r/chelseafc and more
-Ant-Man and the Wasp: Quantumania
-Ant-Man and the Wasp: Quantumania gets 'B' Cinemascore
-r/boxoffice and more
-Joe Biden
-Biden Slams Gov. Ron DeSantis' Relentless Push To Dumb Down Florida Education
-r/politics and more
-Ukraine Tanks
-Germany: Scholz Tells Western Allies To Deliver Tanks To Ukraine ‘Now’
-r/worldnews and more
+Justin Trudeau
+Prime Minister Justin Trudeau calls out heckler during speech at rally for Ukraine in Toronto.
+r/ukraine and more
+iPhone 15
+iPhone 15 Pro Launching This Year With These 8 New Features
+r/gadgets and more
+Nvidia AI
+Nvidia predicts AI models one million times more powerful than ChatGPT within 10 years
+r/Futurology and more
+Europa League
+The Europa League All-time table
+r/soccer and more
+China
+NBC reporter experiences a live encounter between US and Chinese military aircraft over the South China Sea
+r/interestingasfuck and more
+LCK 2023
+spoiler
+T1 vs. KT Rolster / LCK 2023 Spring - Week 6 / Post-Match Discussion
+r/leagueoflegends and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-16.5k
+10.5k
 r/AskReddit
 •Posted by
-u/KonkreteCharlie
-13 hours ago
+u/Chance_in_Pants
+19 hours ago
 Join
-What are things racist people do that they don’t think is racist?
-14.2k Comments
+What is a movie that has aged poorly?
+10.7k Comments
 Share
 Save
-64.5k
-r/entertainment
+8.5k
+r/todayilearned
 •Posted by
-u/Neo2199
-23 hours ago
-2
-Liam Neeson Says ‘Star Wars’ Is Being Hurt by ‘So Many Spinoffs’: ‘It’s Taken Away the Mystery and the Magic’
-variety.com/2023/f...
+u/lettuceandcucumber
+3 hours ago
+TIL that in The Shawshank Redemption, when Morgan Freeman’s character is asked “why do they call you Red?” and he responds with “maybe it’s because I’m Irish”. It’s because the character in the novel was a red haired Irish man. They cast Freeman for the part but added the line as a joke.
+screenrant.com/shawsh...
 Join
-6.2k Comments
+308 Comments
 Share
 Save
-78.0k
+66.3k
 r/WhitePeopleTwitter
 •Posted by
-u/Travismatthew08
-22 hours ago
+u/Manakanda413
+19 hours ago
 Join
-Lauren Boebert is sponsoring a bill to eliminate the Department of Education…
+Drinking from straws.
+14.3k Comments
+Share
+Save
+27.7k
+r/AnarchyChess
+•Posted by
+u/musaraj
+4 hours ago
+Join
+If this post gets 32,768 upvotes, I'll post again with twice as many grains of rice
+478 Comments
+Share
+Save
+39.8k
+r/therewasanattempt
+•Posted by
+u/minathemutt
+21 hours ago
+Join
+To be a patriot
 7.1k Comments
 Share
 Save
-16.6k
-r/clevercomebacks
+36.5k
+r/politics
 •Posted by
-u/LentoRank81
-5 hours ago
-Join
-Quite funny to be honest
-378 Comments
-Share
-Save
-27.5k
-r/therewasanattempt
-•Posted by
-u/TXVERAS
+u/likelazarus
 23 hours ago
+2
+Tennessee Republicans Vote to Make Drag Shows Felonies
+newsweek.com/tennes...
 Join
-To use her phone while her mom is being pulled over
-5.5k Comments
+7.1k Comments
 Share
 Save
-20.1k
-r/movies
+67.9k
+r/meirl
 •Posted by
-u/MarvelsGrantMan136
-21 hours ago
+u/Puzzleheaded-Luck846
+15 hours ago
 Join
-Official Poster for 'The Marvels'
-Poster
-5.3k Comments
+me_irl
+6.3k Comments
 Share
 Save
 Advertisement
