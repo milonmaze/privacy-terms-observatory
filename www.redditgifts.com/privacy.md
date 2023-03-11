@@ -1,79 +1,78 @@
 Found the internet!
 Trending today
-Bahrain Grand Prix
-2023 Bahrain Grand Prix - Free Practice 3 Results
-r/formula1 and more
-Julius Randle
-[Highlight] All-Star Julius Randle, knocks down clutch 3 and Mike Breen bestows upon him the DOUBLE BANG!
+Joel Embiid
+[Highlight] Embiid buries the fadeaway for the lead with 1.1 seconds to go after not leading the entire game
 r/nba and more
-Tom Sizemore
-Tom Sizemore, ‘Heat’ and ‘Saving Private Ryan’ Actor, Dead at 61
-r/movies and more
-Rupert Murdoch
-Rupert Murdoch, Fox Corp. Sued For Sharing Biden’s Presidential Ads Before They Aired
-r/politics and more
-2023 Anime Awards
-Cyberpunk: Edgerunners wins anime of the year at the 2023 Crunchyroll Anime Awards
-r/cyberpunkgame and more
-Bakhmut, Ukraine
-Ukrainian commander says there are more Russians attacking the city of Bakhmut than there is ammo to kill them
+D.J. Moore
+[Schefter] Compensation update, per sources: Bears trading No. 1 overall pick to Carolina for: 🏈pick No. 9 🏈pick No. 61 🏈a first-round pick in 2024 🏈a second-round pick in 2025 🏈WR DJ Moore
+r/nfl and more
+Russia-Ukraine War
+US to help Moldova fight Russia's destabilization efforts
 r/worldnews and more
+Silicon Valley Bank
+Roku says 26% of its cash reserves are stuck in Silicon Valley Bank
+r/news and more
+George Santos
+Secret Service has declaration of Brazilian ATM thief who reportedly says George Santos "in charge" of skimming operation
+r/politics and more
+BBC Match of the Day
+[Rob Harris] Breaking: Match of the Day will air without any studio presentation or punditry on Saturday night
+r/soccer and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-8.2k
-r/funny
+9.6k
+r/ProgrammerHumor
 •Posted by
-u/CppDotPy
-3 hours ago
+u/vpproblems
+5 hours ago
 Join
-How is Dutch even a real language?
-730 Comments
+too smart to get played
+Meme
+114 Comments
 Share
 Save
-11.9k
-r/Unexpected
-•Posted by
-u/ff-dvl
-4 hours ago
-Join
-Speed punching
-363 Comments
-Share
-Save
-27.6k
+20.2k
 r/AskReddit
 •Posted by
-u/SadPatoto_Bts
+u/SolutionIsEducation
 21 hours ago
 Join
-What's an unwritten rule about the road that new drivers should know?
-16.0k Comments
+You find a wallet with $300 in it. What do you find in the wallet that makes you keep the money?
+10.7k Comments
 Share
 Save
-52.7k
-r/WhitePeopleTwitter
+10.2k
+r/therewasanattempt
 •Posted by
-u/Miserable-Lizard
-16 hours ago
-& 2 More
+u/South-Potential-64
+4 hours ago
 Join
-Andrew Tate as lung cancer
-🤏🎻 <- small violin 
-7.6k Comments
+To harass a store owner
+2.5k Comments
 Share
 Save
-6.9k
-r/Damnthatsinteresting
+84.6k
+r/therewasanattempt
 •Posted by
-u/Careful-Builder-6789
-3 hours ago
+u/ASTATINE_628
+21 hours ago
+2
 Join
-this is how you give up on your Hunting hobby
-Video
-623 Comments
+to protect and serve.
+10.7k Comments
+Share
+Save
+21.6k
+r/HumansBeingBros
+•Posted by
+u/shaka_sulu
+8 hours ago
+Join
+National Guard delivering hay to cattle stranded in the snow in Humboldt California.
+708 Comments
 Share
 Save
 Advertisement
