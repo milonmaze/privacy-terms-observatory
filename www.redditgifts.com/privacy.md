@@ -1,78 +1,66 @@
 Found the internet!
 Trending today
-Joel Embiid
-[Highlight] Embiid buries the fadeaway for the lead with 1.1 seconds to go after not leading the entire game
-r/nba and more
-D.J. Moore
-[Schefter] Compensation update, per sources: Bears trading No. 1 overall pick to Carolina for: 🏈pick No. 9 🏈pick No. 61 🏈a first-round pick in 2024 🏈a second-round pick in 2025 🏈WR DJ Moore
-r/nfl and more
-Russia-Ukraine War
-US to help Moldova fight Russia's destabilization efforts
-r/worldnews and more
-Silicon Valley Bank
-Roku says 26% of its cash reserves are stuck in Silicon Valley Bank
+Purdue
+No. 16 Seed FDU Shocks in Upset over No. 1 Seed Purdue for Only Second No. 16 Upset Ever
+r/sports and more
+Minnesota Free School Meals
+Minnesota Governor Tim Walz signed a law guaranteeing free breakfast and lunch for all students in the state, regardless of parents income
+r/nextfuckinglevel and more
+Sam Neill
+Sam Neill: Jurassic Park actor reveals he is being treated for stage-three blood cancer | Sam Neill
 r/news and more
-George Santos
-Secret Service has declaration of Brazilian ATM thief who reportedly says George Santos "in charge" of skimming operation
-r/politics and more
-BBC Match of the Day
-[Rob Harris] Breaking: Match of the Day will air without any studio presentation or punditry on Saturday night
-r/soccer and more
+Bakhmut, Ukraine
+Ukrainian Armed Forces storming Wagner positions on the outskirts of Bakhmut
+r/CombatFootage and more
+Donald Trump
+Wyoming Abortion Pills Ban
+Wyoming governor signs law outlawing use of abortion pills
+r/news and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-9.6k
-r/ProgrammerHumor
+18.3k
+r/MadeMeSmile
 •Posted by
-u/vpproblems
+u/rosseepoo
 5 hours ago
 Join
-too smart to get played
-Meme
-114 Comments
+Thank you librarian
+ Helping Others 
+175 Comments
 Share
 Save
-20.2k
-r/AskReddit
+15.0k
+r/memes
 •Posted by
-u/SolutionIsEducation
-21 hours ago
+u/PowerfulOperation8
+5 hours ago
 Join
-You find a wallet with $300 in it. What do you find in the wallet that makes you keep the money?
-10.7k Comments
+Their favourite flavour
+118 Comments
 Share
 Save
-10.2k
-r/therewasanattempt
+55.2k
+r/nextfuckinglevel
 •Posted by
-u/South-Potential-64
-4 hours ago
-Join
-To harass a store owner
-2.5k Comments
-Share
-Save
-84.6k
-r/therewasanattempt
-•Posted by
-u/ASTATINE_628
-21 hours ago
+u/ahivarn
+7 hours ago
 2
 Join
-to protect and serve.
-10.7k Comments
+Minnesota Governor Tim Walz signed a law guaranteeing free breakfast and lunch for all students in the state, regardless of parents income
+2.4k Comments
 Share
 Save
-21.6k
-r/HumansBeingBros
+20.4k
+r/meirl
 •Posted by
-u/shaka_sulu
-8 hours ago
+u/NotTommy13
+6 hours ago
 Join
-National Guard delivering hay to cattle stranded in the snow in Humboldt California.
-708 Comments
+meirl
+514 Comments
 Share
 Save
 Advertisement
