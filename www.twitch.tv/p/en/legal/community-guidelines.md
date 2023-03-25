@@ -12,6 +12,8 @@ These guidelines set the guardrails for what behavior is and is not allowed on o
 
 In addition to these guidelines, streamers and moderators can also use customizable Twitch safety tools to tailor their channel standards to meet their needs. Viewers, moderators, and streamers play a crucial role by reporting content or behavior that breaks our Community Guidelines. Reports are reviewed by our global Safety Operations team who work 24/7/365 to ensure a swift response. In this way, we all work together to promote a safe and welcoming live environment.
 
+(Expand All)
+
 Safety
 Self-Destructive Behavior
 
