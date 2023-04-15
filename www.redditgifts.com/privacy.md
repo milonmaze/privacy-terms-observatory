@@ -1,90 +1,91 @@
 Found the internet!
 Trending today
-France Pension Protests
-French refuse collectors have now been on strike for 18 days after their government raised the pension age from 62 to 64. Whether you agree ot not, they are not going to let their government walk over them.
-r/antiwork and more
-Gordon Moore
-Gordon Moore, Intel Co-Founder, Dies at 94
-r/programming and more
-LCK 2023
-spoiler
-T1 vs. KT Rolster / LCK 2023 Spring Playoffs - Round 2 / Post-Match Discussion
-r/leagueoflegends and more
-Russia-Ukraine War
-Support Grows to Have Russia Pay for Ukraine’s Rebuilding
+PM Kishida Fumio
+Loud explosions have been heard at a port in western Japan which Prime Minister Kishida Fumio was visiting.
 r/worldnews and more
-Michelangelo Statue
-Principal fired after parents complain Florida students shown Michelangelo statue was too pornographic
+Greg Abbott
+Juror says Texas Gov. Abbott's rush to pardon shooter a 'travesty'
 r/news and more
-West Reading, PA, Explosion
-A massive Explosion took place today in the chocolate factory in West Reading, Pennsylvania, USA. At least six people were injured. 03/25/2023
+Donald Trump
+Judge rejects Trump’s bid to learn juror names at defamation trial
+r/politics and more
+Russian e-conscription Notices
+Putin approves e-conscription notices and closes borders for evaders
+r/worldnews and more
+Super Mario Bros. Movie
+Taliban
+Chinese company offers $10 billion to the Taliban for access to lithium deposits
+r/worldnews and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-8.6k
-r/AskReddit
+44.9k
+r/pics
 •Posted by
-u/Nameiac
-19 hours ago
+u/Damnatio__memoriae
+15 hours ago
+3
+& 2 More
 Join
-You wake up, it's January 1st 1999, What do you do first?
-8.0k Comments
+I went to high school with Ronald DeSantis and found my yearbooks.
+Politics
+1/6
+6.4k Comments
 Share
 Save
-Vote
-r/funny
+45.3k
+r/worldnews
 •Posted by
-u/The_Human_Event
-1 hour ago
+u/Every-Philosophy-719
+22 hours ago
+French pension age rise to 64 cleared by court
+bbc.com/news/w...
 Join
-Ever wondered what the opposite of a stork was?
-149 Comments
+5.9k Comments
 Share
 Save
-16.1k
-r/Damnthatsinteresting
+12.1k
+r/antiwork
 •Posted by
-u/LucidCunning
-4 hours ago
+u/Captain_Calamari_
+2 hours ago
 Join
-In Hangzhou, China, there is a building that houses over 30,000 people.
-Image
-1.4k Comments
+Why indeed
+141 Comments
 Share
 Save
-127k
-r/Damnthatsinteresting
+10.7k
+r/news
 •Posted by
-u/Bloke22
-20 hours ago
+u/Interesting_Road_515
+3 hours ago
+US man killed by police in doorway of his own home after authorities show up to wrong address
+abc.net.au/news/2...
 Join
-A street in Paris after weeks of garbage collector strikes
-Image
-6.0k Comments
+1.3k Comments
 Share
 Save
-24.8k
-r/memes
+53.2k
+r/mildlyinfuriating
 •Posted by
-u/elch3w
-5 hours ago
+u/Primalfish1844
+17 hours ago
+2
 Join
-PREDICTION
-The meme of Leonardo DiCaprio smirking/smiling and holding a drink originates from which movie?
-You must be logged in
-The Wolf of Wall Street
-Titanic
-The Great Gatsby
-Once Upon a Time in Hollywood
-Inception
-Django Unchained
-See What Others Predicted
-36.8k predictions made
-·
-Prediction ends in 6d 19h
-89 Comments
+The “hotdog” served at my highschool
+5.2k Comments
+Share
+Save
+64.2k
+r/interestingasfuck
+•Posted by
+u/Adventure84
+14 hours ago
+Join
+Worst pain known to man
+4.3k Comments
 Share
 Save
 Advertisement
