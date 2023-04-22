@@ -1,91 +1,80 @@
 Found the internet!
 Trending today
-PM Kishida Fumio
-Loud explosions have been heard at a port in western Japan which Prime Minister Kishida Fumio was visiting.
+Barry Humphries
+Barry Humphries dies aged 89
+r/australia and more
+Sudan Conflict
+US Forces Sent to Djibouti to prep for possible Sudan evacuation.
 r/worldnews and more
-Greg Abbott
-Juror says Texas Gov. Abbott's rush to pardon shooter a 'travesty'
-r/news and more
-Donald Trump
-Judge rejects Trump’s bid to learn juror names at defamation trial
+Leopard 2A4 Tanks
+Leopard 2A4 going through Ukrainian mud.
+r/ukraine and more
+Dominic Raab
+Dominic Raab bullying report has led to 'complete breakdown in trust between ministers and civil servants', thinktank says | Politics News
+r/unitedkingdom and more
+Cute Animals
+Playful baby elephant
+r/aww and more
+Supreme Court on Abortion Pills
+The Supreme Court Just Ruled Abortion Pills Can Stay on the Market
 r/politics and more
-Russian e-conscription Notices
-Putin approves e-conscription notices and closes borders for evaders
-r/worldnews and more
-Super Mario Bros. Movie
-Taliban
-Chinese company offers $10 billion to the Taliban for access to lithium deposits
-r/worldnews and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-44.9k
-r/pics
+55.7k
+r/politics
 •Posted by
-u/Damnatio__memoriae
-15 hours ago
-3
-& 2 More
+u/Ardielley
+23 hours ago
+2
+Outrage as Florida Republicans pass ‘fascist’ bill to remove trans kids from parents
+independent.co.uk/news/w...
 Join
-I went to high school with Ronald DeSantis and found my yearbooks.
-Politics
-1/6
-6.4k Comments
+5.6k Comments
 Share
 Save
-45.3k
-r/worldnews
-•Posted by
-u/Every-Philosophy-719
-22 hours ago
-French pension age rise to 64 cleared by court
-bbc.com/news/w...
-Join
-5.9k Comments
-Share
-Save
-12.1k
-r/antiwork
-•Posted by
-u/Captain_Calamari_
-2 hours ago
-Join
-Why indeed
-141 Comments
-Share
-Save
-10.7k
-r/news
-•Posted by
-u/Interesting_Road_515
-3 hours ago
-US man killed by police in doorway of his own home after authorities show up to wrong address
-abc.net.au/news/2...
-Join
-1.3k Comments
-Share
-Save
-53.2k
+27.9k
 r/mildlyinfuriating
 •Posted by
-u/Primalfish1844
-17 hours ago
-2
+u/BigfootDynamite
+21 hours ago
 Join
-The “hotdog” served at my highschool
-5.2k Comments
+Should you be expected to clean this up for a customer?
+3.8k Comments
 Share
 Save
-64.2k
-r/interestingasfuck
+58.2k
+r/facepalm
 •Posted by
-u/Adventure84
-14 hours ago
+u/HyperLand10
+12 hours ago
 Join
-Worst pain known to man
-4.3k Comments
+What’s going on in America nowadays?
+ 🇲​🇮​🇸​🇨​
+3.4k Comments
+Share
+Save
+10.6k
+r/gaming
+•Posted by
+u/johnlen1n
+3 hours ago
+Join
+Out you go
+413 Comments
+Share
+Save
+9.5k
+r/MadeMeSmile
+•Posted by
+u/SnooPickles1572
+3 hours ago
+2
+Join
+2 years sober, one day at a time.
+357 Comments
 Share
 Save
 Advertisement
