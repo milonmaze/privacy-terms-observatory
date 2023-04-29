@@ -1,80 +1,78 @@
 Found the internet!
 Trending today
-Barry Humphries
-Barry Humphries dies aged 89
-r/australia and more
-Sudan Conflict
-US Forces Sent to Djibouti to prep for possible Sudan evacuation.
-r/worldnews and more
-Leopard 2A4 Tanks
-Leopard 2A4 going through Ukrainian mud.
-r/ukraine and more
-Dominic Raab
-Dominic Raab bullying report has led to 'complete breakdown in trust between ministers and civil servants', thinktank says | Politics News
-r/unitedkingdom and more
-Cute Animals
-Playful baby elephant
-r/aww and more
-Supreme Court on Abortion Pills
-The Supreme Court Just Ruled Abortion Pills Can Stay on the Market
+Ted Cruz
+Ted Cruz Fox News tapes are being handed over to the Justice Department for its Jan. 6 inquiry
 r/politics and more
+Azerbaijan Grand Prix
+2023 Azerbaijan Grand Prix - Sprint Shootout Classification
+r/formula1 and more
+LeBron James
+[Highlight] 38 year old LeBron throws down a reverse!
+r/nba and more
+2023 NFL Draft
+Round 3 - Pick 36: Jake Moody, K, Michigan (San Francisco 49ers)
+r/nfl and more
+Memphis Grizzlies
+[MacMahon] Grizzlies are waving the white flag with 9:42 remaining. Starters have been pulled down 32.
+r/nba and more
+Russian Oil Depot Attack
+Sevastopol refinery still burning in the morning.
+r/ukraine and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-55.7k
-r/politics
+13.7k
+r/AskReddit
 •Posted by
-u/Ardielley
-23 hours ago
-2
-Outrage as Florida Republicans pass ‘fascist’ bill to remove trans kids from parents
-independent.co.uk/news/w...
+u/1sided
+14 hours ago
 Join
-5.6k Comments
+What’s something that changed/disappeared because of Covid that still hasn’t returned?
+9.4k Comments
 Share
 Save
-27.9k
-r/mildlyinfuriating
+23.1k
+r/funny
 •Posted by
-u/BigfootDynamite
-21 hours ago
+u/nalimajib
+4 hours ago
 Join
-Should you be expected to clean this up for a customer?
-3.8k Comments
+The proper way to ask a girl out to prom.
+796 Comments
 Share
 Save
-58.2k
+12.0k
+r/interestingasfuck
+•Posted by
+u/thewomanoftomorrow
+3 hours ago
+Join
+Horses on a plane
+700 Comments
+Share
+Save
+22.3k
 r/facepalm
 •Posted by
-u/HyperLand10
-12 hours ago
+u/Leather-Bug3087
+20 hours ago
 Join
-What’s going on in America nowadays?
+Maga Pastor Sean Feucht worships in US Capitol with Lauren Boebert.
  🇲​🇮​🇸​🇨​
-3.4k Comments
+6.0k Comments
 Share
 Save
-10.6k
-r/gaming
+35.2k
+r/pcmasterrace
 •Posted by
-u/johnlen1n
-3 hours ago
+u/ElVaNoS7
+18 hours ago
 Join
-Out you go
-413 Comments
-Share
-Save
-9.5k
-r/MadeMeSmile
-•Posted by
-u/SnooPickles1572
-3 hours ago
-2
-Join
-2 years sober, one day at a time.
-357 Comments
+PC Gaming in 2023: Paying Full Price for Beta Testing
+Meme/Macro
+4.3k Comments
 Share
 Save
 Advertisement
