@@ -1,78 +1,83 @@
 Found the internet!
 Trending today
-Ted Cruz
-Ted Cruz Fox News tapes are being handed over to the Justice Department for its Jan. 6 inquiry
-r/politics and more
-Azerbaijan Grand Prix
-2023 Azerbaijan Grand Prix - Sprint Shootout Classification
+Joel Embiid
+[Highlight] Joel Embiid begins to cry as his son Arthur runs on to the court during his MVP acceptance speech
+r/nba and more
+King Charles Coronation
+A van contained protest material has been confiscated at King’s coronation.
+r/Damnthatsinteresting and more
+Taylor Swift Album
+Taylor Swift to release 'Speak Now (Taylor's Version)' on July 7
+r/popheads and more
+Oath Keepers Prosecution
+Jan. 6 prosecutors seek 25 years for Oath Keepers’ Rhodes
+r/news and more
+Cute Animals
+Just remember that a stepparent is the parent who stepped up. You gotta respect that, no matter the species.
+r/aww and more
+Formula 1
+[OT] Fébreau: "A 3rd person confirmed this to me: At '19 Indy 500 Alonso who struggled with his car setup asked his team to buy the settings from Andretti for $2M. Alo said the car was literally undrivable and failed to qualify 31/36. Turned out the numbers were in inch and they used the them in cm"
 r/formula1 and more
-LeBron James
-[Highlight] 38 year old LeBron throws down a reverse!
-r/nba and more
-2023 NFL Draft
-Round 3 - Pick 36: Jake Moody, K, Michigan (San Francisco 49ers)
-r/nfl and more
-Memphis Grizzlies
-[MacMahon] Grizzlies are waving the white flag with 9:42 remaining. Starters have been pulled down 32.
-r/nba and more
-Russian Oil Depot Attack
-Sevastopol refinery still burning in the morning.
-r/ukraine and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-13.7k
-r/AskReddit
-•Posted by
-u/1sided
-14 hours ago
-Join
-What’s something that changed/disappeared because of Covid that still hasn’t returned?
-9.4k Comments
+217k
+r/memes
+LIVE
+· 379k players
+R/MEMES MEME QUIZ #3
+PREDICTION
+Will this be the last ever r/memes predictions question?
+You must be logged in
+Yes
+No
+See What Others Predicted
+PREDICTION
+Which Simpsons character is known for the line: (chuckles) I'm in danger
+You must be logged in
+Bart
+Milhouse
+Nelson
+Homer
+Lisa
+Ralph
+See What Others Predicted
+0 of 6 predicted
+1.1k Comments
 Share
 Save
-23.1k
-r/funny
+13.5k
+r/MadeMeSmile
 •Posted by
-u/nalimajib
+u/pseudo__pandit
 4 hours ago
 Join
-The proper way to ask a girl out to prom.
-796 Comments
+Kid in blue was raised right 
+ Helping Others 
+516 Comments
 Share
 Save
-12.0k
-r/interestingasfuck
+10.2k
+r/KidsAreFuckingStupid
 •Posted by
-u/thewomanoftomorrow
-3 hours ago
+u/jettman87
+4 hours ago
 Join
-Horses on a plane
-700 Comments
+Kid gets in the way at the worst possible time
+758 Comments
 Share
 Save
-22.3k
+43.9k
 r/facepalm
 •Posted by
-u/Leather-Bug3087
-20 hours ago
+u/Baxwell_mui
+13 hours ago
 Join
-Maga Pastor Sean Feucht worships in US Capitol with Lauren Boebert.
+Teacher takes student’s phone away, and she pepper sprays him to get her phone back
  🇲​🇮​🇸​🇨​
-6.0k Comments
-Share
-Save
-35.2k
-r/pcmasterrace
-•Posted by
-u/ElVaNoS7
-18 hours ago
-Join
-PC Gaming in 2023: Paying Full Price for Beta Testing
-Meme/Macro
-4.3k Comments
+10.2k Comments
 Share
 Save
 Advertisement
