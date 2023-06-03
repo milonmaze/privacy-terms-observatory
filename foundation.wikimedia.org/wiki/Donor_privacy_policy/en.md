@@ -9,12 +9,15 @@ Please note that in the event of any differences in meaning or interpretation be
 Wikimedia policies
 
 
+
 Wikimedia projects
 
-Access to nonpublic information
+Access to nonpublic personal data
+Access to temporary account IP addresses
 Code of conduct for Wikimedia technical spaces, including events
 Cookie statement
 Data retention guidelines
+Digital Millennium Copyright Act (DMCA)
 Donor privacy
 General disclaimer
 Human rights
@@ -22,9 +25,12 @@ Licensing
 Office actions
 Privacy
 Terms of Use
+Wikimedia Maps
 Terrorist and violent extremist content procedures and guidelines
 Trademarks
-Universal code of conduct (enforcement guidelines)
+Universal code of conduct
+Enforcement guidelines
+
 
 Foundation Board and staff
 
@@ -38,19 +44,20 @@ Duty entertainment
 Foreign corrupt practices act policy
 Gifts
 Non-discrimination
-Guidelines covering pluralism, internationalism, and diversity in hiring
 Travel and expense
 Travel approval
 Whistleblower
+
 
 Other
 
 Expense reimbursement
 Feedback privacy statement
 Friendly space policy
-Fundraising principles
 Legal policies
+Non-wiki privacy policy
 Open access policy
+Peering policy
 Phabricator Terms of Use
 Purchasing and disbursements procedures
 Requests for user information
@@ -82,7 +89,7 @@ This Donor Privacy Policy covers the collection, transfer, processing, storage, 
 
 What Information We Collect
 
-As a result of your interaction with our donation pages, making a donation, participating in a donor survey or providing feedback related to donating, or otherwise using the Wikimedia Fundraising Services, WMF may collect certain Personal Information, such as your name, contact details (such as address, phone number, email address, identification number on government-issued ID), financial information (such as bank account number), device details (such as IP address, web browser user-agent information), demographic details (such as gender or age) and information about your interests and affiliations.  We also collect such Personal Information about U.S. donors through publicly-available sources and other commercially-available sources.
+As a result of your interaction with our donation pages, making a donation, participating in a donor survey or providing feedback related to donating, or otherwise using the Wikimedia Fundraising Services, WMF may collect certain Personal Information, such as your name, contact details (such as address, phone number, email address, identification number on government-issued ID), financial information (such as bank account number), device details (such as IP address, web browser user-agent information), demographic details (such as gender or age) and information about your interests and affiliations. We also collect such Personal Information about U.S. donors through publicly-available sources and other commercially-available sources.
 
 We also collect or automatically receive some other information, such as:
 
