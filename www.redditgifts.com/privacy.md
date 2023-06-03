@@ -1,105 +1,112 @@
 Found the internet!
 Trending today
-Monaco Grand Prix
-2023 Monaco Grand Prix - Third Practice Classification
+Diablo IV
+Diablo IV Launch Megathread
+r/Diablo and more
+NBA Finals
+Kristian Winfield: Jimmy Butler, not Gabe Vincent, must guard Jamal Murray in NBA Finals
+r/nba and more
+Taylor Swift
+Taylor Swift Kicks Off Pride Month with Heartfelt Speech at Chicago Concert
+r/popheads and more
+Street Fighter 6
+SUPER Street Fighter 6
+r/OnePiece and more
+Spanish Grand Prix
+2023 Spanish Grand Prix - Third Practice Classification
 r/formula1 and more
-Nintendo DMCA
-Nintendo sends Valve DMCA notice to block Steam release of Wii emulator Dolphin
-r/gaming and more
-Tesla Data Leak
-Report: ‘massive’ Tesla leak reveals data breaches, thousands of safety complaints | Tesla
-r/worldnews and more
-Ron DeSantis
-DeSantis campaign tells nervous donors in leaked audio that voters will care more about a recession and Biden's age than the governor's anti-abortion record
-r/politics and more
-Pentagon Price Gouging
-Military contractors overcharge the Pentagon on almost everything the Department of Defense buys each year, experts told 60 Minutes over the course of a six-month investigation into price gouging.
-r/news and more
-Child Labor Bill
-Iowa governor signs bill rolling back child labor protections into law
-r/politics and more
+French Open
+C. Alcaraz 🇪🇸 def. D. Shapovalov 🇨🇦 | 6-1, 6-4, 6-2 | R3 of French Open
+r/tennis and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-12.2k
-r/politics
-•Posted by
-u/drakejones99
-4 hours ago
-White House rejects Lauren Boebert’s claim that antisemitism plan will be used ‘go after conservatives’ ‘If anyone finds opposition to hate threatening, they need to look inward’
-independent.co.uk/news/w...
-Join
-540 Comments
-Share
-Save
-23.6k
+17.4k
 r/AskReddit
 •Posted by
-u/dcee101
-21 hours ago
+u/fleeting_muse
+14 hours ago
 Join
-Florida just passed a law that child molesters could be sentenced to death. Do you agree or disagree and why?
-9.2k Comments
+What are the cons of NOT having kids?
+9.0k Comments
 Share
 Save
-23.5k
-r/antiwork
+9.5k
+r/politics
 •Posted by
-u/TurretLauncher
-8 hours ago
-Family of Louisiana Arby's manager found dead in a freezer reveal how she beat on the door until her hands were bloody: "the latch on the cooler was not working properly since August, and the problem was known and ignored by management"
-dailymail.co.uk/news/a...
+u/DragonPup
+2 hours ago
+Federal Judge rules Tennessee drag ban is unconstitutional
+losangelesblade.com/2023/0...
 Join
-1.4k Comments
+203 Comments
 Share
 Save
-22.1k
-r/NoStupidQuestions
-•Posted by
-u/Subconcious-Consumer
-15 hours ago
-Join
-Was there really a game in the 90’s where you punch someone when you spot a Volkswagen Bug?
-Answered
-
-I was a young kid growing up through the 90’s - my mom used to punch the shit out of my arm and exclaim “SLUGBUG!” every time she saw a VW Bug on the road.
-
-Did my mom invent some sort of latent child abuse or did other 80s/90s babies get punched while just fucking listening to meatloaf in the car?
-
-8.3k Comments
-Share
-Save
-38.4k
+12.9k
 r/facepalm
 •Posted by
-u/Elluminated
-17 hours ago
+u/PanzerJagerr
+3 hours ago
 Join
-Dinosaurs never existed
+Kid throws pizza boxes on the floor for a video
  🇲​🇮​🇸​🇨​
-7.5k Comments
+1.2k Comments
 Share
 Save
-29.7k
-r/pics
+101k
+r/mildlyinfuriating
 •Posted by
-u/fat_old_boy
-7 hours ago
+u/_seaweed_
+22 hours ago
 Join
-Years of meditation wasted.
-949 Comments
+it finally happened. i was prompted to tip at the airport self-checkout station.
+4.5k Comments
 Share
 Save
-18.2k
-r/AnimalsBeingDerps
+7.9k
+r/WhitePeopleTwitter
 •Posted by
-u/majedhazmi
-7 hours ago
+u/imnotlookingaturbutt
+2 hours ago
 Join
-Self motivated.
-101 Comments
+Bingo-Bango, baby.
+157 Comments
+Share
+Save
+78.1k
+r/nextfuckinglevel
+•Posted by
+u/Downtown_Lock7452
+23 hours ago
+Join
+Student tackles school shooter as he reloads shotgun
+3.9k Comments
+Share
+Save
+25.4k
+r/worldnews
+•Posted by
+u/Bice_Num
+23 hours ago
+Russia deployed its feared thermobaric missile launcher on its own territory to repel an attack by insurgents, UK intel says
+Russia/Ukraine
+businessinsider.nl/russia...
+Join
+1.7k Comments
+Share
+Save
+10.5k
+r/worldnews
+•Posted by
+u/Quantum_II
+7 hours ago
+Zelenskiy says Ukraine ready to launch counteroffensive
+Russia/Ukraine
+reuters.com/world/...
+Join
+701 Comments
 Share
 Save
 Advertisement
