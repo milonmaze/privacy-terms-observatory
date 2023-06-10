@@ -1,112 +1,116 @@
 Found the internet!
 Trending today
-Diablo IV
-Diablo IV Launch Megathread
-r/Diablo and more
-NBA Finals
-Kristian Winfield: Jimmy Butler, not Gabe Vincent, must guard Jamal Murray in NBA Finals
-r/nba and more
-Taylor Swift
-Taylor Swift Kicks Off Pride Month with Heartfelt Speech at Chicago Concert
-r/popheads and more
-Street Fighter 6
-SUPER Street Fighter 6
-r/OnePiece and more
-Spanish Grand Prix
-2023 Spanish Grand Prix - Third Practice Classification
-r/formula1 and more
+Artificial intelligence
+Performers Worry Artificial Intelligence Will Take Their Jobs
+r/Futurology and more
+UFOs
+Are We Finally Ready to Admit UFOs Are Alien Visitors?
+r/ufo and more
 French Open
-C. Alcaraz 🇪🇸 def. D. Shapovalov 🇨🇦 | 6-1, 6-4, 6-2 | R3 of French Open
+The mood of r/tennis on the eve of the French Open men's final
 r/tennis and more
+UEFA Champions League final
+[Simon Bajkowski] Ilkay Gundogan will be providing Turkish food and drink for 115 people in the Manchester-based social care project, Community Integrated Care to help them celebrate the 2023 Champions League Final, as well as a letter thanking them for inspiring him.
+r/soccer and more
+Diablo IV
+An extremely rational reaction to Diablo IV marketing
+r/diablo4 and more
+Tony Awards
+5th Annual Tony Awards at Radio City Music Hall in New York City, 12.06.2022
+r/VanessaHudgens and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-17.4k
-r/AskReddit
-•Posted by
-u/fleeting_muse
-14 hours ago
-Join
-What are the cons of NOT having kids?
-9.0k Comments
-Share
-Save
-9.5k
-r/politics
-•Posted by
-u/DragonPup
-2 hours ago
-Federal Judge rules Tennessee drag ban is unconstitutional
-losangelesblade.com/2023/0...
-Join
-203 Comments
-Share
-Save
-12.9k
+36.5k
 r/facepalm
 •Posted by
-u/PanzerJagerr
-3 hours ago
+u/Number721
+18 hours ago
 Join
-Kid throws pizza boxes on the floor for a video
+Cognitive dissonance 101
  🇲​🇮​🇸​🇨​
-1.2k Comments
+10.2k Comments
 Share
 Save
-101k
-r/mildlyinfuriating
+4.0k
+r/AskReddit
 •Posted by
-u/_seaweed_
-22 hours ago
+u/ReliableFart
+13 hours ago
 Join
-it finally happened. i was prompted to tip at the airport self-checkout station.
-4.5k Comments
+What instantly ruins a salad?
+7.0k Comments
 Share
 Save
-7.9k
-r/WhitePeopleTwitter
+3.2k
+r/ask
 •Posted by
-u/imnotlookingaturbutt
-2 hours ago
+u/yomommafool
+17 hours ago
 Join
-Bingo-Bango, baby.
-157 Comments
+People who do not fear death, why?
+
+Why?
+
+6.3k Comments
 Share
 Save
-78.1k
-r/nextfuckinglevel
+12.8k
+r/politics
 •Posted by
-u/Downtown_Lock7452
-23 hours ago
+u/PoliticsModeratorBot
+20 hours ago
 Join
-Student tackles school shooter as he reloads shotgun
-3.9k Comments
+Discussion Thread: Justice Department Officials Make a Statement to the Press on Trump Indictment at 3 p.m. Eastern
+5.5k Comments
 Share
 Save
-25.4k
-r/worldnews
+20.3k
+r/pics
 •Posted by
-u/Bice_Num
-23 hours ago
-Russia deployed its feared thermobaric missile launcher on its own territory to repel an attack by insurgents, UK intel says
-Russia/Ukraine
-businessinsider.nl/russia...
+u/diacewrb
+21 hours ago
 Join
-1.7k Comments
+Double Decker Airline Seats
+5.2k Comments
 Share
 Save
-10.5k
-r/worldnews
+9.2k
+r/NoStupidQuestions
 •Posted by
-u/Quantum_II
-7 hours ago
-Zelenskiy says Ukraine ready to launch counteroffensive
-Russia/Ukraine
-reuters.com/world/...
+u/Thawra-Intifada
+14 hours ago
 Join
-701 Comments
+Is it worth it to you to have higher taxes in exchange for universal health coverage?
+Answered
+4.0k Comments
+Share
+Save
+70.8k
+r/technology
+•Posted by
+u/sussywanker
+16 hours ago
+2
+2
+& 13 More
+Reddit CEO doubles down on attack on Apollo developer in drama-filled AMA
+Social Media
+techcrunch.com/2023/0...
+Join
+4.0k Comments
+Share
+Save
+36.8k
+r/antiwork
+•Posted by
+u/dancartopb
+20 hours ago
+Join
+Landlords are the scum of the earth, your the reason why they have to rent.
+3.6k Comments
 Share
 Save
 Advertisement
