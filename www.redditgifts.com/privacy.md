@@ -1,116 +1,124 @@
 Found the internet!
 Trending today
-Artificial intelligence
-Performers Worry Artificial Intelligence Will Take Their Jobs
-r/Futurology and more
-UFOs
-Are We Finally Ready to Admit UFOs Are Alien Visitors?
-r/ufo and more
-French Open
-The mood of r/tennis on the eve of the French Open men's final
-r/tennis and more
-UEFA Champions League final
-[Simon Bajkowski] Ilkay Gundogan will be providing Turkish food and drink for 115 people in the Manchester-based social care project, Community Integrated Care to help them celebrate the 2023 Champions League Final, as well as a letter thanking them for inspiring him.
-r/soccer and more
+Black Mirror Season 6
+Black Mirror season six review – prepare to convulse in horror on the sofa
+r/television and more
+Canadian Grand Prix
+What’s the weather forecast for the 2023 Canadian Grand Prix?
+r/GrandPrixRacing and more
+The Ashes first Test
+400+ runs on the first day of an Ashes Test
+r/Cricket and more
+U.S. Open
+Rickie Fowler shatters the US Open record for birdies thru 36 holes.
+r/golf and more
 Diablo IV
-An extremely rational reaction to Diablo IV marketing
+My Lilith Cosplay (Diablo IV)
 r/diablo4 and more
-Tony Awards
-5th Annual Tony Awards at Radio City Music Hall in New York City, 12.06.2022
-r/VanessaHudgens and more
+U.S. weather warnings
+Severe weather threat grows; smoke to fill the air Father's Day weekend
 Popular posts
 Hot
 Everywhere
 New
 Top
-36.5k
-r/facepalm
-•Posted by
-u/Number721
-18 hours ago
-Join
-Cognitive dissonance 101
- 🇲​🇮​🇸​🇨​
-10.2k Comments
-Share
-Save
-4.0k
+12.1k
 r/AskReddit
 •Posted by
-u/ReliableFart
-13 hours ago
-Join
-What instantly ruins a salad?
-7.0k Comments
-Share
-Save
-3.2k
-r/ask
-•Posted by
-u/yomommafool
-17 hours ago
-Join
-People who do not fear death, why?
-
-Why?
-
-6.3k Comments
-Share
-Save
-12.8k
-r/politics
-•Posted by
-u/PoliticsModeratorBot
-20 hours ago
-Join
-Discussion Thread: Justice Department Officials Make a Statement to the Press on Trump Indictment at 3 p.m. Eastern
-5.5k Comments
-Share
-Save
-20.3k
-r/pics
-•Posted by
-u/diacewrb
+u/AmountFun2036
 21 hours ago
 Join
-Double Decker Airline Seats
-5.2k Comments
+What is a profession that you have limitless respect for?
+9.0k Comments
 Share
 Save
-9.2k
-r/NoStupidQuestions
+26.7k
+r/shittytattoos
 •Posted by
-u/Thawra-Intifada
-14 hours ago
+u/Solaralos
+17 hours ago
 Join
-Is it worth it to you to have higher taxes in exchange for universal health coverage?
-Answered
-4.0k Comments
+Just got my first tattoo a few days ago (my sister told me to post it here cause she thinks it's a shitty tattoo)
+8.8k Comments
 Share
 Save
-70.8k
-r/technology
+35.8k
+r/politics
 •Posted by
-u/sussywanker
+u/Beckles28nz
+18 hours ago
+Biden says US is at ‘tipping point’ on gun control: ‘We will ban assault weapons in this country’
+independent.co.uk/news/w...
+Join
+6.6k Comments
+Share
+Save
+107k
+r/mildlyinfuriating
+•Posted by
+u/Parkpire21
 16 hours ago
 2
-2
-& 13 More
-Reddit CEO doubles down on attack on Apollo developer in drama-filled AMA
-Social Media
-techcrunch.com/2023/0...
+& 9 More
 Join
-4.0k Comments
+Someone replaced my stem cap with a dick.
+4.7k Comments
 Share
 Save
-36.8k
-r/antiwork
+10.7k
+r/NoStupidQuestions
 •Posted by
-u/dancartopb
-20 hours ago
+u/CCCLVI
+22 hours ago
 Join
-Landlords are the scum of the earth, your the reason why they have to rent.
-3.6k Comments
+I have an exchange student coming to stay with me from a village in Zimbabwe. He has asked if I could prepare a “classic American meal” for his first dinner here and I’m happy to oblige. What should I make for him?
+4.2k Comments
+Share
+Save
+30.7k
+r/nottheonion
+•Posted by
+u/ClubZealousideal9784
+17 hours ago
+Everybody in the US Is Getting Depressed, CDC Says
+msn.com/en-us/...
+Join
+4.1k Comments
+Share
+Save
+1.9k
+r/teenagers
+•Posted by
+u/Dawn_Cyborgzzz
+13 hours ago
+Join
+without saying the title, what’s your favorite game?
+Gaming
+3.5k Comments
+Share
+Save
+15.2k
+r/wallstreetbets
+•Posted by
+u/Jim_C_Belfort
+16 hours ago
+3
+& 14 More
+Join
+My life’s over, here’s my final advice
+Loss
+3.5k Comments
+Share
+Save
+39.4k
+r/therewasanattempt
+•Posted by
+u/FinalSneak
+17 hours ago
+Join
+To intimidate and beat up a smaller guy.
+Video/Gif
+3.0k Comments
 Share
 Save
 Advertisement
