@@ -1,124 +1,143 @@
 Found the internet!
 Trending today
-Black Mirror Season 6
-Black Mirror season six review – prepare to convulse in horror on the sofa
-r/television and more
-Canadian Grand Prix
-What’s the weather forecast for the 2023 Canadian Grand Prix?
-r/GrandPrixRacing and more
-The Ashes first Test
-400+ runs on the first day of an Ashes Test
-r/Cricket and more
-U.S. Open
-Rickie Fowler shatters the US Open record for birdies thru 36 holes.
-r/golf and more
-Diablo IV
-My Lilith Cosplay (Diablo IV)
-r/diablo4 and more
-U.S. weather warnings
-Severe weather threat grows; smoke to fill the air Father's Day weekend
+Glastonbury Festival
+Arctic Monkeys accused of ‘butchering’ Glastonbury set
+r/unitedkingdom and more
+Titanic sub
+James Cameron explains what happened to the titan
+r/titanic and more
+Phil Spencer
+Phil Spencer Confirms Starfield Was Potentially Going to Skip Xbox Prior to ZeniMax Acquisition
+r/XboxSeriesX and more
+r/nba
+Raptors 13th overall pick with a interesting tiktok
+r/nba and more
+Sonic Central
+Sonic Central - June 23rd, 2023
+r/SonicTheHedgehog and more
+Musk vs. Zuckerberg fight
+Elon Musk and Mark Zuckerberg agree to hold cage fight
+r/nottheonion and more
 Popular posts
 Hot
 Everywhere
 New
 Top
-12.1k
+4.3k
+r/worldnews
+•Posted by
+u/WorldNewsMods
+8 hours ago
+/r/WorldNews Live Thread: Russian Invasion of Ukraine Day 486, Part 2 (Thread #628)
+Russia/Ukraine
+reddit.com/live/1...
+Join
+9.6k Comments
+Share
+Save
+23.7k
 r/AskReddit
 •Posted by
-u/AmountFun2036
-21 hours ago
+u/Generalmogar
+23 hours ago
 Join
-What is a profession that you have limitless respect for?
-9.0k Comments
+“The loudest voice in the room is usually the dumbest” what an example of this you have seen?
+8.9k Comments
 Share
 Save
-26.7k
-r/shittytattoos
+3.6k
+r/ukraine
 •Posted by
-u/Solaralos
+u/AutoModerator
 17 hours ago
+& 13 More
 Join
-Just got my first tattoo a few days ago (my sister told me to post it here cause she thinks it's a shitty tattoo)
-8.8k Comments
+botox man vs. captain piggy: speculation megathread (free popcorn)
+RARE MEME
+5.7k Comments
 Share
 Save
-35.8k
-r/politics
+77.8k
+r/facepalm
 •Posted by
-u/Beckles28nz
-18 hours ago
-Biden says US is at ‘tipping point’ on gun control: ‘We will ban assault weapons in this country’
-independent.co.uk/news/w...
+u/bentaxle738
+19 hours ago
+Oceangate owner bought the carbon fiber used to construct the Titan from Boeing at a discount because it was past its airplane shelf-life
+ 🇲​🇮​🇸​🇨​
+insider.com/oceang...
 Join
-6.6k Comments
+5.5k Comments
 Share
 Save
-107k
-r/mildlyinfuriating
-•Posted by
-u/Parkpire21
-16 hours ago
-2
-& 9 More
-Join
-Someone replaced my stem cap with a dick.
-4.7k Comments
-Share
-Save
-10.7k
-r/NoStupidQuestions
-•Posted by
-u/CCCLVI
-22 hours ago
-Join
-I have an exchange student coming to stay with me from a village in Zimbabwe. He has asked if I could prepare a “classic American meal” for his first dinner here and I’m happy to oblige. What should I make for him?
-4.2k Comments
-Share
-Save
-30.7k
+49.4k
 r/nottheonion
 •Posted by
-u/ClubZealousideal9784
-17 hours ago
-Everybody in the US Is Getting Depressed, CDC Says
-msn.com/en-us/...
+u/Empress_of_Lucite
+21 hours ago
+2
+Elon Musk and Mark Zuckerberg agree to hold cage fight
+bbc.com/news/b...
 Join
-4.1k Comments
+4.8k Comments
 Share
 Save
-1.9k
-r/teenagers
+27.0k
+r/politics
 •Posted by
-u/Dawn_Cyborgzzz
-13 hours ago
+u/Haltopen
+11 hours ago
+US says Wagner coup is ‘real’ and ‘serious’ as White House consults allies
+telegraph.co.uk/world-...
 Join
-without saying the title, what’s your favorite game?
-Gaming
-3.5k Comments
+3.1k Comments
 Share
 Save
-15.2k
-r/wallstreetbets
+17.6k
+r/TikTokCringe
 •Posted by
-u/Jim_C_Belfort
-16 hours ago
-3
-& 14 More
+u/brizzboog
+18 hours ago
 Join
-My life’s over, here’s my final advice
-Loss
-3.5k Comments
+You're fixing to ride the lightning, son.
+Discussion
+2.9k Comments
 Share
 Save
-39.4k
-r/therewasanattempt
+7.1k
+r/worldnews
 •Posted by
-u/FinalSneak
-17 hours ago
+u/WorldNewsMods
+12 hours ago
+6
+& 9 More
+/r/WorldNews Live Thread: Russian Invasion of Ukraine Day 486, Part 1 (Thread #627)
+Russia/Ukraine
+reddit.com/live/1...
 Join
-To intimidate and beat up a smaller guy.
-Video/Gif
-3.0k Comments
+9.5k Comments
+Share
+Save
+17.4k
+r/gaming
+•Posted by
+u/blackwolf57
+11 hours ago
+The Elder Scrolls 6 is still 5 to 6 years away and it is not yet decided if there will be a PlayStation version. Mentioned by Phil Spencer during the FTC trial.
+ign.com/articl...
+Join
+2.6k Comments
+Share
+Save
+19.1k
+r/popculturechat
+•Posted by
+u/pannonica
+18 hours ago
+Join
+I'm sick of lusting after pricks and cheaters, so let's DO THIS: who's your favorite *non-problematic* man in entertainment?
+Let’s Discuss 👀🙊
+i.imgur.com/QIV8T2...
+2.5k Comments
 Share
 Save
 Advertisement
