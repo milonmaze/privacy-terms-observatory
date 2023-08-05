@@ -1,119 +1,72 @@
-Found the internet!
-Trending today
-UFOs
-Congress knows American workers are near a boiling point... time to distract us with aliens and UFOs!
-r/WorkReform and more
-Barbie
-This Barbie is an ancient Slavic witch
-r/WitchesVsPatriarchy and more
-Extreme heat
-False claims that heatwave is bogus spread online
-r/news and more
-Oppenheimer
-Japan bans oppenheimer
-r/Funnymemes and more
-Belgian Grand Prix
-[Chris Medland] BREAKING: Otmar Szafnauer is leaving Alpine at the end of the Belgian Grand Prix
-r/formula1 and more
-Women's World Cup
-French advertising to promote the 2023 Women's World Cup
-r/Damnthatsinteresting and more
-Popular posts
-Hot
-Everywhere
-New
-Top
-10.7k
-r/AskReddit
-•Posted by
-u/falling-down-1242
-17 hours ago
-Join
-what is a good show that got canceled for no good reason?
-19.1k Comments
-Share
-Save
-1.6k
-r/AITAH
-•Posted by
-u/throwawayaccount7820
-12 hours ago
-Join
-AITAH for divorcing my wife because i found out her bodycount.
-NSFW
-
-. I (27m) have been married with my wife (28F) for 8 months now. When I married her I was told to believe we both still had our V-cards because of religious reasons. But yesterday whilst we had some friends over we talked about how young kids these days have their first time and don't really wait until marriage anymore. To which my wife responded with "Waiting till marriage doesn't make sense anyways, there are so many safe options now". I chose not to respond and just listen whilst our friend group had a discussion about it. Later that day i asked my wife if she regrets waiting until marriage to which she responded: "I didn't wait i wanted to tell u but i never felt comfortable sharing it". I have to admit then i got furious and said some things I regret saying (Namecalling etc.) and told her to leave my house (her parents live 10 minutes away). I feel like i've been manipulated and that i've been keeping to myself for nothing (we had been dating for 7 months before we married). When she returned the day after I asked her what her real body count was and she told me it was with me included 17, To which she added that most of those were only a 1 time thing and nothing felt more like real love then with me. I told her that she had a month to pack her stuff and we are getting a divorce (thankfully we signed a strong prenup that stated that in any divorce no matter the reason our assets would not be divided, she agreed because she is the only grandchild of very very rich grandparents). My friends and her family have been blowing me up saying that this is no reason to divorce since it has nothing to do with our relationship or marriage, but i disagree if i knew she didn't have her v-card i would have never married her.
-
-Edit:
-
-Since it was unclear; She flat out told me she was a virgin too when we started dating I told her I was waiting till marriage.
-
-After that I didn't explicitly say I wanted a wife who was also waiting, but there was no reason too since she was a virgin anyways.
-
-To clarify I also was upset about what my wife said about waiting till marriage, that's why I asked her about it but the topic as u can read soon changed.
-
-I hope this will be the last edit:
-
-The issue isn't her not being a virgin as i've stated in one of the comments. It's about her not waiting till marriage, whilst i did. If she married and divorced all 16 of those guys that'd would have been fine. (Although if u had 16 different divorces, i'd prob not be the 17th guy to marry u)
-
-6.9k Comments
-Share
-Save
-19.6k
-r/TrueUnpopularOpinion
-•Posted by
-u/Finalyst
-1 day ago
-3
-Join
-Every birth should require a mandatory Paternity Test before the father is put on the Birth Certificate
-Unpopular on Reddit
-
-When a child is born the hospital should have a mandatory paternity test before putting the father's name on the birth certificate. If a married couple have a child while together but the husband is not actually the father he should absolutely have the right to know before he signs a document that makes him legally and financially tied to that child for 18 years. If he finds out that he's not the father he can then make the active choice to stay or leave, and then the biological father would be responsible for child support.
-
-Even if this only affects 1/1000 births, what possible reason is there not to do this? The only reason women should have for not wanting paternity tests would be that their partner doesn't trust them and are accusing them of infidelity. If it were mandatory that reason goes out the window. It's standard, legal procedure that EVERYONE would do.
-
-The argument that "we shouldn't break up couples/families" is absolute trash. Doesn't a man's right to not be extorted or be the target of fraud matter?
-
-6.7k Comments
-Share
-Save
-54.9k
-r/mildlyinfuriating
-•Posted by
-u/DoftheG
-23 hours ago
-Join
-How people leave an airplane
-1/3
-6.2k Comments
-Share
-Save
-13.3k
-r/movies
-•Posted by
-u/HappyFamily0131
-22 hours ago
-Join
-What movie seems to end on a high note for the protagonists, but if you think about it they're actually pretty screwed?
-Discussion
-
-The inspiration for this question is the movie WALL-E.
-
-The score swells with the final words of "It Only Takes a Moment," the camera pulls back showing the former occupants of the Axiom exploring their new home under the direction of Captain McCrea, and we the audience feel a surge of joy and hope for them and a recovering planet Earth... Okay great, but those humans are all excited thinking they're going to grow "pizza plants;" they have no idea the life of hardship they're entering into.
-
-6.0k Comments
-Share
-Save
-17.0k
-r/facepalm
-•Posted by
-u/ExpertAccident
-20 hours ago
-Join
-What the hell?
- 🇲​🇮​🇸​🇨​
-5.0k Comments
-Share
-Save
 Advertisement
+Baldur's Gate III
+
+There's no running from the critically acclaimed MMORPG is there? (Baldur's Gate 3)
+
+r/ffxiv
+and more
+Evo 2023
+
+EPIC MOMENT!!! The winner of Mortal Kombat 11 Evo 2023 is.......
+
+r/MortalKombat
+and more
+Lollapalooza
+
+Lollapalooza!
+
+r/chicago
+and more
+Meg 2
+
+🇺🇲🇨🇦 Meg 2 looks like $2.75-3M ish previews on THU. Initial audience reception seems not good. Despite that should go for $25M+ weekend to as high as $30M.
+
+r/boxoffice
+and more
+The Hundred
+
+Hayley Matthews scores 65 off 38 and defends 8 off the last 5 to give Welsh Fire their first win of the Women's Hundred 2023
+
+r/Cricket
+and more
+r/popculturechat
+
+Throwback to when Jimmy Fallon’s life flashed before his eyes
+
+r/popculturechat
+and more
+r/AskReddit
+•
+19 hr. ago
+Why did that one kid get expelled?
+r/NoStupidQuestions
+•
+21 hr. ago
+What if your girlfriend decided to stop shaving everything.
+
+My girlfriend of 5 years and I were having a discussion on what I would do if she had just stopped shaving everything. Legs, armpits, all of it. We are both young and I understand at some point she won’t be able to but we’re talking about right now.
+
+I’m curious what other people’s response would be.
+
+r/AITAH
+•
+16 hr. ago
+AITAH for breaking up with my pregnant girlfriend because I don’t want to be a father?
+
+AITA for breaking up with my pregnant girlfriend because I don’t want to be a father.
+
+I (25M) had been with my now ex (23F) for a little over 3 months. I always made sure we used lots of precaution when having sex. She was on birth control and I always used condoms. I wanted to avoid a child. I have known for a long time that I do not want children. I find them annoying and they would severely limit my ability to do the things I enjoy (traveling, outdoors stuff, etc.). Unfortunately for me, my ex didn’t have her period when she was supposed to and it turns out she’s now pregnant. She came to me and told me she was pregnant.
+
+The first thing I did was suggest an abortion. We don’t live in a state where it’s legal so I offered to pay for her flight and hotel and told her I’d be happy to come with her to get it done. I have a stable job and make good money so it isn’t wouldn’t be too much of a hit for me. She works as a receptionist and doesn’t make a lot so I figured it would be better for me to pay. That’s when she told me she was hoping to keep it and that she wanted me to help her raise the kid as it’s father.
+
+I have no intention of being a father. Beyond just my dislike of children, I’m not ready for that. I made it very clear that I didn’t want the baby, but she kept insisting that I’d have a change of heart once it’s born and to just try it out. After a long exchange I told her that if she intended to keep the baby I would not act as a father. I broke up with her and told her that I would pay child support once it’s born, but that I expect her to respect my wishes and keep the child away from me. Since then she’s been frantically texting me, begging me to come back and telling me she’d forgive me. She’s sent me voicemails crying, it does hurt to see, but I haven’t responded.
+
+The other day she texted me saying how she can’t raise the kid alone and how I’m basically forcing her to get the abortion just by leaving. She called me an asshole, an abuser, and a sexist. She ended the text begging me to talk again. I certainly feel shitty, I really liked her and we had a good relationship before this, but I just don’t want to be a father. I’m already bitter about the fact that I’ll have to pay child support for 18 years, which will somewhat limit me financially. I also feel it isn’t right for a parent who doesn’t want their child to be involved. I’d just end up taking that pent up anger and bitterness out on the child who is ultimately innocent, which I feel isn’t right.
+
+With all this said I come here to ask, AITA? I certainly feel like one, but I also stand by what I did.
+
+Clarifying edits: On the topic of a vasectomy, I tried. I met with a doctor last year and asked about getting one, but he refused and said every doctor he knows won’t do it until you’re at least 30. It’s a conservative state and while I dislike the politics, I was born and raised here so I’m still attached to the state and have never felt the urge to leave. Someone said I should have flown elsewhere to get one, and I guess they’re right but I just didn’t think about that.
+
+On the topic of birth control, I bought the condoms myself so they were fine. Whenever we were done I’d throw used condoms I’m the dumpster so I don’t think she went dumpster diving. I asked her on our first date if she was taking birth control and she said yes, I took her for her word. Maybe foolish to just believe her, but if she was lying she’d be the first I’ve met to lie about that. Most girls I’ve met are honest about it. I assumed she was on the pill since that’s the main birth control I know, but maybe she was on something else that I’m not educated enough on. That being said, I’ll follow your advice and lawyer up + get a paternity test. IDK how long that will take, but whenever I get it done I’ll update here with results. Thank you for your judgements, I’ve been away for a bit but I’m catching up and trying to read what I can. I’ll be checking back periodically and replying to some people, all further feedback is appreciated.
+
+View full post
