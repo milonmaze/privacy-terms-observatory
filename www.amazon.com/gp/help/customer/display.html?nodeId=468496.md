@@ -6,7 +6,7 @@ Find more solutions
 Security and Privacy  ›  Legal Policies  › 
 Amazon.com Privacy Notice
 
-Last updated: June 30, 2023. To see prior version, click here.
+Last updated: August 11, 2023. To see prior version, click here.
 
 We know that you care how information about you is used and shared, and we appreciate your trust that we will do so carefully and sensibly. This Privacy Notice describes how Amazon.com and its affiliates (collectively "Amazon") collect and process your personal information through Amazon websites, devices, products, services, online and physical stores, and applications that reference this Privacy Notice (together "Amazon Services"). By using Amazon Services, you are consenting to the practices described in this Privacy Notice.
 
@@ -19,7 +19,7 @@ What About Advertising?
 What Information Can I Access?
 What Choices Do I Have?
 Are Children Allowed to Use Amazon Services?
-EU-US and Swiss-US Privacy Shield
+EU-US and Swiss-US Data Privacy Framework
 Additional State-Specific Privacy Disclosures
 Conditions of Use, Notices, and Revisions
 Related Practices and Information
@@ -99,9 +99,11 @@ Are Children Allowed to Use Amazon Services?
 
 Amazon does not sell products for purchase by children. We sell children's products for purchase by adults. If you are under 18, you may use Amazon Services only with the involvement of a parent or guardian. We do not knowingly collect personal information from children under the age of 13 without the consent of the child's parent or guardian. For more information, please see our Children's Privacy Disclosure.
 
-EU-US and Swiss-US Privacy Shield
+EU-US and Swiss-US Data Privacy Framework
 
-Amazon.com, Inc. participates in the EU-US and Swiss-US Privacy Shield frameworks. Click here to learn more.
+Amazon.com, Inc. participates in the EU-US Data Privacy Framework, the UK Extension to the EU-US Data Privacy Framework, and the Swiss-US Data Privacy Framework*. Click here to learn more.
+
+*We will not rely on the Swiss-US Data Privacy Framework or the UK Extension to the EU-US Data Privacy Framework until they enter into force, but we adhere to their required commitments in anticipation of their doing so.
 
 Additional State-Specific Privacy Disclosures
 
@@ -138,11 +140,11 @@ communicate with us by phone, email, or otherwise;
 complete a questionnaire, a support ticket, or a contest entry form;
 upload or stream images, videos or other files to Prime Photos, Amazon Drive, or other Amazon Services;
 use our services such as Prime Video;
-compile Playlists, Watchlists, Wish Lists or other gift registries;
+compile Playlists, Watchlists, Wish Lists, or other gift registries;
 participate in Discussion Boards or other community features;
 provide and rate Reviews;
 specify a Special Occasion Reminder; or
-employ Product Availability Alerts , such as Available to Order Notifications.
+employ Product Availability Alerts, such as Available to Order Notifications.
 
 As a result of those actions, you might supply us with such information as:
 
@@ -220,6 +222,7 @@ Legal Policies
 3rd Party Licensing Notice
 AMAZON INFLUENCER TERMS & CONDITIONS FOR SPONSORED CONTENT
 Conditions of Use
+Communications with Amazon Employees
 Report Stolen Goods
 Amazon.com Privacy Notice
 Amazon Group Companies
