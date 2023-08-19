@@ -1,70 +1,54 @@
 Advertisement
-Premier League
+Women's World Cup final
 
-Erling Haaland is the first player ever to score both the 1st and 2nd goals of a Premier League season 🤖🇳🇴
+Prince William Criticized for Missing Women's World Cup Final, PM Also Under Fire
 
-r/MCFC
+r/england
 and more
-Hawaii wildfires
+Hurricane Hilary
 
-Biden declares Hawaii wildfires a major disaster
+First-ever tropical storm watch issued for Southern California as Hurricane Hilary barrels north
 
-r/JoeBiden
+r/news
 and more
-Perseid meteor shower
+Linus Tech Tips
 
-Perseid Meteor Shower anyone?
+The REAL Linus Tech Tips Apology
 
-r/memes
+r/LinusTechTips
 and more
-Women's World Cup
+Vanderpump Rules
 
-[England] England have reached the 2023 Women's World Cup Semifinals. Their 3rd consecutive semifinal appearance at the Women's World cup
+Lisa Vanderpump confirmed that Raquel will not be returning to “Vanderpump Rules” — saying there’s no point for her to come back because the cast doesn’t “believe anything she says.” 😏
 
-r/soccer
+r/BravoRealHousewives
 and more
-Canadian Open
+Canada wildfire emergency
 
-Canadian Open QF | 🇵🇱 [1] Iga Świątek def. 🇺🇲 Danielle Collins | 6-3, 4-6, 6-2
+Raging wildfires spreads in Kelowna, BC, Canada 🙏
 
-r/tennis
+r/ThatsInsane
 and more
-r/FauxMoi
+Baldur's Gate 3
 
-Aubrey Plaza brings a celebrity from Pawnee, Indiana to the picket lines
+'We owe them a huge debt': Baldur's Gate 3 lead writer hopes they did '90s BioWare proud
 
-r/Fauxmoi
+r/pcgaming
 and more
-r/NoStupidQuestions
+Create a post
+r/wholesomememes
 •
-17 hr. ago
-Do most skinny people over 30 have to think about what they eat literally all the time?
-
-I'm a 30 year old woman and as I got to my late 20s I realized that if I want to be thin (like average/healthy thin, not super skinny, just not fat) I have to pay attention to what I eat pretty much every single day, all day long. I'm always hungry and up for eating snacks so 24/7 I have to be vigilent and make sure I'm not eating too much.
-
-I cook nearly all my meals and it's mostly vegetarian food and limited oil/sugar, I don't drink soda ever, I never eat fast food, I eat junk food occasionally (probably once per week I make a bad decision like eating a bag of crisps), I do drink alcohol but not a crazy amount. I could easily eat like 3x the portion sizes of what I'm supposed to have for each meal, like it might be tofu and rice and veggies but I could eat a lot of it.
-
-Is this just what it will be like for the rest of my life? I have to stay vigilent and think about what I'm eating every day 24/7 or be overweight? Are the thin people around me having to be careful with everything they eat every day and that's how they stay thin?
-
---
-
-Edit: It would be useful to know if people responding are men or women as it might be quite different
-
-View full post
-r/movies
+4 hr. ago
+Keanu Reeves is the best
+r/AITAH
 •
 19 hr. ago
-What actor or actress did you expect would have a big career, but then disappeared?
+AITAH if I stop seeing a woman because she used to be promiscuous?
 
-Rooney Mara!
-
-Going all the way back to The Social Network, she was very incredible for a character who only appears in a few scenes and really stands out in the moments she confronts Mark Zuckerberg. Then she went on to star in The Girl with the Dragon Tattoo which earned her an Oscar nod, and then made other appearances in movies like Her, Carol, etc. I really thought she was on her way to becoming one of Hollywood’s A-listers, but I haven’t seen her in anything mainstream for a long time.
-
-EDIT: Based on the comments I’ve been getting, I’m glad to hear that she’s still getting work. I personally haven’t come across those other movies or heard of them so I’ll definitely have to check them out. Also I didn’t realize she came from a filthy rich family, you learn something new every day I guess.
+I’ve been dating “Christine” for the past couple of weeks. We met through a mutual friend. We’re both in our mid 20’s. We’ve been on a few dates and she’s a nice person. However, on out last date, she said something to me that has stuck with me since. We were on the topic of past relationships and why they didn’t work out. I asked her how many guys has she been with prior. She said, “I honestly don’t know but I know it’s more than 20 but less than 30.” I nodded my head but inside I was taken aback. I’ve never been in a relationship or had sex before so seeing how someone can have between 20 to 30 sexual partners is crazy to me. We continued the date as planned and I drove her home. I told her I had a good time and I hope to see her again. While I’m respectful of her and her decisions, I personally don’t want to commit to a woman who has slept with that many guys. I’m aware that may come off as judgemental but I personally just cannot do it. I decided it was beat for me to tell her that I don’t think this is going to work out. She can’t go back and change her past and I’m unwilling to change my views on the matter. The other night, I left her a voicemail saying, “This is “Cedric”. The last few weeks have been great and I think you are a good person. However, I don’t think this is going to work. Sorry for the inconvenience and I hope you find what you are looking for.” She has called me twice since then but I don’t have any plans on returning her call. I don’t feel as if I owe her anything as I didn’t ghost her because I made it known I would like to stop seeing her. I would just like to find someone whose a little bit more selective in who she decides to have sex with.
 
 View full post
-r/worldnews
+r/AskReddit
 •
-2 hr. ago
-Zelenskyy fires recruitment officials for accepting $10,000 bribes to help Ukrainian men dodge the draft: 'bribery during war is treason'
-https://www.businessinsider.com/zelenskyy-fires-officials-accepting-bribes-help-ukrainians-dodge-the-draft-2023-8?utm_source=reddit&utm_medium=social&utm_campaign=insider-worldnews-sub-post
+7 hr. ago
+What have you survived that would’ve killed you 150 years ago?
