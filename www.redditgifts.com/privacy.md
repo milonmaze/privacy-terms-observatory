@@ -1,54 +1,60 @@
 Advertisement
-Women's World Cup final
+Burning Man
 
-Prince William Criticized for Missing Women's World Cup Final, PM Also Under Fire
+My Burning Man Ticket from 1996
 
-r/england
+r/BurningMan
 and more
-Hurricane Hilary
+Gamescom
 
-First-ever tropical storm watch issued for Southern California as Hurricane Hilary barrels north
+Risked my life getting a photo with PomPom at the Gamescom in Cologne
 
-r/news
+r/HonkaiStarRail
 and more
-Linus Tech Tips
+FIBA World Cup
 
-The REAL Linus Tech Tips Apology
+[The Athletic] Shai Gilgeous-Alexander became the first player with at least 20 points, 10 rebounds and five assists in their World Cup debut over the last 30 years, per FIBA.
 
-r/LinusTechTips
+r/nba
 and more
-Vanderpump Rules
+'The Eras Tour' in Mexico
 
-Lisa Vanderpump confirmed that Raquel will not be returning to “Vanderpump Rules” — saying there’s no point for her to come back because the cast doesn’t “believe anything she says.” 😏
+Taylor Swift concert security guard who went viral for singing along says he was fired
 
-r/BravoRealHousewives
+r/TaylorSwift
 and more
-Canada wildfire emergency
+Dutch Grand Prix
 
-Raging wildfires spreads in Kelowna, BC, Canada 🙏
+Going Dutch. See you on the race track. [@mclaren via Instagram]
 
-r/ThatsInsane
+r/formula1
 and more
-Baldur's Gate 3
+NFL Preseason
 
-'We owe them a huge debt': Baldur's Gate 3 lead writer hopes they did '90s BioWare proud
+Liking What I'm Seeing From Love | NFL Preseason Game Tape Breakdown by Kurt Warner
 
-r/pcgaming
+r/GreenBayPackers
 and more
 Create a post
-r/wholesomememes
-•
-4 hr. ago
-Keanu Reeves is the best
-r/AITAH
-•
-19 hr. ago
-AITAH if I stop seeing a woman because she used to be promiscuous?
-
-I’ve been dating “Christine” for the past couple of weeks. We met through a mutual friend. We’re both in our mid 20’s. We’ve been on a few dates and she’s a nice person. However, on out last date, she said something to me that has stuck with me since. We were on the topic of past relationships and why they didn’t work out. I asked her how many guys has she been with prior. She said, “I honestly don’t know but I know it’s more than 20 but less than 30.” I nodded my head but inside I was taken aback. I’ve never been in a relationship or had sex before so seeing how someone can have between 20 to 30 sexual partners is crazy to me. We continued the date as planned and I drove her home. I told her I had a good time and I hope to see her again. While I’m respectful of her and her decisions, I personally don’t want to commit to a woman who has slept with that many guys. I’m aware that may come off as judgemental but I personally just cannot do it. I decided it was beat for me to tell her that I don’t think this is going to work out. She can’t go back and change her past and I’m unwilling to change my views on the matter. The other night, I left her a voicemail saying, “This is “Cedric”. The last few weeks have been great and I think you are a good person. However, I don’t think this is going to work. Sorry for the inconvenience and I hope you find what you are looking for.” She has called me twice since then but I don’t have any plans on returning her call. I don’t feel as if I owe her anything as I didn’t ghost her because I made it known I would like to stop seeing her. I would just like to find someone whose a little bit more selective in who she decides to have sex with.
-
-View full post
 r/AskReddit
 •
-7 hr. ago
-What have you survived that would’ve killed you 150 years ago?
+23 hr. ago
+What film made you say, "Holy shit there is still an hour left"?
+r/AITAH
+•
+21 hr. ago
+AITA for being honest with my girlfriend when she asked a question about the birthday cake she made me?
+
+I (34M) had a birthday just yesterday, and my girlfriend (36F) offered to bake me a cake. I told her that I would prefer a chocolate cake (devil's food) with chocolate icing and nothing fancy. She is usually a great baker, and I guess she thought that wasn't sophisticated enough or something. She baked me a chocolate cake with vanilla icing between the two layers of cake then surrounding in chocolate frosting.
+
+The cake was fine, but I was disappointed because it was not what I wanted. She must have noticed and asked me if I was disappointed, so I was honest with her. Yes. I was disappointed. It wasn't the cake I asked for. I said, "If I wanted vanilla in a cake, I would have asked for vanilla in the cake."
+
+I didn't make a scene. I didn't pout. I even ate half of a slice--the chocolate part. She got upset with me and said, "But I've made vanilla cake before, and you liked it." I pointed out that I don't mind vanilla icing, but **it's not what I wanted for my birthday**. Her feelings were hurt, and she even pulled a "I'm not going to make you any cake next year," which I replied with, "I will order my own and get my money back if they don't do it like I want it." Apparently that was the last straw. She asked me to leave, later texted me that I embarrassed her in front of her kids, and now she won't reply to my messages.
+
+I think birthdays are important things, and I feel like I was honest with her when she asked me. I didn't want to lie about it. My friend told me I should have been grateful that she made me a cake at all, especially one that I've eaten and liked in the past. Maybe I overreacted a bit, though I don't feel like I did and hope to get a second opinion. AITA here?
+
+View full post
+r/facepalm
+•
+20 hr. ago
+A woman got this letter from her Christian parents, essentially disowning her…
