@@ -1,60 +1,84 @@
 Advertisement
-Burning Man
+Starfield
 
-My Burning Man Ticket from 1996
+Skyrim's in town map 12 years ago vs starfields.
 
-r/BurningMan
+r/Starfield
 and more
-Gamescom
+One Piece on Netflix
 
-Risked my life getting a photo with PomPom at the Gamescom in Cologne
+'One Piece' Review - Netflix Finally Breaks the Anime Adaptation Curse
 
-r/HonkaiStarRail
+r/television
 and more
-FIBA World Cup
+U.S. Open Tennis
 
-[The Athletic] Shai Gilgeous-Alexander became the first player with at least 20 points, 10 rebounds and five assists in their World Cup debut over the last 30 years, per FIBA.
+The Unforgettable Upsets: Shaking the Tennis World at the US Open
 
-r/nba
+r/tennis
 and more
-'The Eras Tour' in Mexico
+Fantasy Football
 
-Taylor Swift concert security guard who went viral for singing along says he was fired
+Top 10 Fantasy Football Draft Values and Sleepers - Fantasy Football 2023
 
-r/TaylorSwift
+r/Fantasy_Football
 and more
-Dutch Grand Prix
+Baldur's Gate 3
 
-Going Dutch. See you on the race track. [@mclaren via Instagram]
+"Nice argument. Unfortunately," Baldur's Gate 3 Edition
+
+r/BaldursGate3
+and more
+Italian Grand Prix
+
+Round 15: Italian Grand Prix, 2023 Track Maps [OC]
 
 r/formula1
 and more
-NFL Preseason
-
-Liking What I'm Seeing From Love | NFL Preseason Game Tape Breakdown by Kurt Warner
-
-r/GreenBayPackers
-and more
 Create a post
+r/Cricket
+•
+6 hr. ago
+Match Thread: 3rd Match, Group A - India vs Pakistan
+3rd Match, Group A, Asia Cup at Kandy
+
+Cricinfo | Reddit-Stream | 🌥 🌥 🌥 🌥 🌥
+
+Innings	Score
+
+India	253/8 (Ov 46.3/50)Batter	Runs	Balls	SR
+
+Kuldeep Yadav*	2	8	25.0
+Jasprit Bumrah	7	6	116.67Bowler	Overs	Runs	Wickets
+
+Haris Rauf	8.3	54	3
+Shaheen Shah Afridi	9	31	4
+Recent : 3 . . W  |  W . 1 . 2w 1 .  |  . 4 1 . . 1  |  . . 1 
+
+India chose to bat.
+
+Live match threads: Eswatini Women vs Mozambique Women | Cameroon Women vs Sierra Leone Women | England Women vs Sri Lanka Women | Guyana Amazon Warriors vs St Kitts and Nevis Patriots |
+
+Send feedback | Schedule | Stat Help | Glossary
+
+View full post
 r/AskReddit
 •
-23 hr. ago
-What film made you say, "Holy shit there is still an hour left"?
+21 hr. ago
+What was loved by poor people until rich people ruined it?
 r/AITAH
 •
 21 hr. ago
-AITA for being honest with my girlfriend when she asked a question about the birthday cake she made me?
+AITH because I dont emotionally support my wife's obssession with Taylor Swift?
 
-I (34M) had a birthday just yesterday, and my girlfriend (36F) offered to bake me a cake. I told her that I would prefer a chocolate cake (devil's food) with chocolate icing and nothing fancy. She is usually a great baker, and I guess she thought that wasn't sophisticated enough or something. She baked me a chocolate cake with vanilla icing between the two layers of cake then surrounding in chocolate frosting.
+My wife is fully obssessed with Taylor Swift. For the last year + thats all she listens to. Every Taylor Swift album on one continuous loop when shes working out or even just walking around the house doing stuff. Spent $2k to go see her recently at the eras tour. Probably spent another $200 on merch. She filmed the show on her phone and will regularly put it on the TV and just watch for hours. Will also watch the livestreams of her performances on tik tok or whatever streaming platform those are on. Is now going to go see the concert movie. I mean, it has been nonstop Taylor Swift in our house for a long time now. She continually refers to the live concert as "the best experience of my life." She says Taylor Swift is a "lifestyle."
 
-The cake was fine, but I was disappointed because it was not what I wanted. She must have noticed and asked me if I was disappointed, so I was honest with her. Yes. I was disappointed. It wasn't the cake I asked for. I said, "If I wanted vanilla in a cake, I would have asked for vanilla in the cake."
+I personally don't really get it. I have never been obssessed with anything to that point. I love soccer and would love to watch Messi play, but I cant bring myself to spend $900 for a ticket to his upcoming match, its just too much. I am also really passionate about things my wife has no interest in, but Im also not looking for her emotional support with those, those are just things that are important to me and will remain important to me regardless.
 
-I didn't make a scene. I didn't pout. I even ate half of a slice--the chocolate part. She got upset with me and said, "But I've made vanilla cake before, and you liked it." I pointed out that I don't mind vanilla icing, but **it's not what I wanted for my birthday**. Her feelings were hurt, and she even pulled a "I'm not going to make you any cake next year," which I replied with, "I will order my own and get my money back if they don't do it like I want it." Apparently that was the last straw. She asked me to leave, later texted me that I embarrassed her in front of her kids, and now she won't reply to my messages.
+I have for sure made comments to my wife implying that this whole Taylor Swift thing is getting out of hand. I also was not super stoked that she was spending that much on one ticket to go see one concert, but ultimately its what she really wanted and we had the money, so I said yes, and I am happy that she got to go.
 
-I think birthdays are important things, and I feel like I was honest with her when she asked me. I didn't want to lie about it. My friend told me I should have been grateful that she made me a cake at all, especially one that I've eaten and liked in the past. Maybe I overreacted a bit, though I don't feel like I did and hope to get a second opinion. AITA here?
+Recently she blew up on me about how I dont support her as much as she thinks I should with her Taylor Swift lifestyle. She cites comments I make implying its a cult and the only one winning here is Taylor Swift raking in the dough, and maybe its time to focus on other things. She wants me to stop making comments like that and stop rolling my eyes and be supportive of her and her interests, but from my perspective its really taking over her life and that just cant be healthy to obssess over something like that. People need balance. I also thought one of the benefits of marriage was to have someone tell you this kind of stuff and it shouldnt be an argument?
+
+So, AITH? If so - what can I do about this situation to make things right?
 
 View full post
-r/facepalm
-•
-20 hr. ago
-A woman got this letter from her Christian parents, essentially disowning her…
