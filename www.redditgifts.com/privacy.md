@@ -1,227 +1,211 @@
 Advertisement
-FIBA: Germany beats USA
+NFL Week 2
 
-[Post Game Thread] Germany beats the United States in the FIBA World Cup knockout semifinals, 113-111. They will face Serbia in the gold medal match.
+NFL Week 2 Schedule
 
-r/nba
+r/NFLv2
 and more
-Prosecutors accuse Rubiales
+Singapore Grand Prix
 
-Spain prosecutors accuse Rubiales of sexual assault, coercion
+Singapore GP start times US EDT
 
-r/sports
+r/GrandPrixRacing
 and more
-Star Trek Day
+Mortal Kombat 1 release
 
-Star Trek debuted today 57 years ago, September 8 1966
+Mortal Kombat 1
 
-r/OldSchoolCool
+r/SteamDeck
 and more
-China iPhone ban
+London Fashion Week
 
-China announced it was banning iPhones for government officials. Almost immediately, Apple lost billions
+Simone Ashley with Gemma Chan, Baz Luhrmann, Anna Wintour, and Versa Sharma for Vogue World London 🤩
 
-r/worldnews
+r/SimoneAshleyFans
 and more
-NFL: Lions defeat Chiefs
+Premier League
 
-[Highlight] Lions defeat Chiefs 21-20 in season opener
+Who are the Premier League's most clinical strikers?
 
-r/detroitlions
+r/reddevils
 and more
-Hong Kong Floods
+Celebrity Gossip
 
-Heaviest rains in Hong Kong in last 140 years
+Hugh Jackman and Deborra-lee Separate After 27 Years of Marriage
 
-r/Damnthatsinteresting
+r/Fauxmoi
 and more
 Create a post
-r/wholesomememes
-•
-4 hr. ago
-Honest pay for a day’s work
-r/stories
-•
-19 hr. ago
-I accidentally stared at my coworkers cleavage for a second ,she noticed and kept hand on her breast hiding it for atleast 5-10 minutes .
-
-Me a 26M started a new job and I have a huge crush on a coworker, today she was explaining me few company policies and while talking to her i noticed her cleavage unintentionally, I was not even observing her, but my eyes went there for a second ,as soon as I look up she kept her hand on her breast while talking to me for until the discussion was over.
-
-Even after an hour when I talked to her again she kept hand on her breast.
-
-I feel really bad I made her uncomfortable. I am planning to shift my seat away from her from next Monday.
-
-Edit - fuckk i didn't knew this post would blow up, for those people who are blaming me or her, let me share some more details. She is a 24 years old , professional, and she was dressed modestly , but there are always some angles for every dress, and it was that angle today. She was not showing cleavage "Intentionally".
-
-Me, i cannot hold on eye contact with someone for more than a minute, my eyes keeps rotating, and while rotating it went over there, and idk why but they stopped there for a second. Definitely not more than a second.
-
-View full post
 r/AskReddit
 •
-21 hr. ago
-What is a dead giveaway that someone is creepy or a weirdo?
-r/clevercomebacks
-•
-3 hr. ago
-But NASA uses...
-r/news
-•
-19 hr. ago
-Ashton Kutcher, Mila Kunis asked judge for leniency in Danny Masterson's rape sentencing
-https://www.latimes.com/california/story/2023-09-08/danny-masterson-rape-sentencing-support-letters-ashton-kutcher-mila-kunis
-r/todayilearned
-•
-3 hr. ago
-TIL So Long, and Thanks for All the Fish was written by Douglas Adams when his editor Sonny Mehta, locked him in a hotel room to force him to write it after becoming fed up with Adams constantly procrastinating and failing to meet deadlines.
-https://www.thebookseller.com/features/berkeley-hotel-hostage
-r/megalophobia
-•
-4 hr. ago
-We need more underground stuff
-r/TwoHotTakes
-•
-21 hr. ago
-Update: My fiancé is asking questions about my sex life. I don’t want to lie, but I need to know the best way to answer honestly without hurting him
-
-So I’ll get on with the update but I just want to make a few things clear first.
-
-For the hundreds of incels and incel adjacent men telling me that I’m settling for my fiancé kindly get some help. I am not settling for him. He is not a meal ticket, in fact I outearn him by a decent amount. I’m HIS meal ticket. The presumption that just because I’ve had better sex that I’m settling is so far from correct.
-
-Next, I frequently was asked why this came up. So my fiancé has told me multiple times that I’m his best sexual partner ever. Which may or may not be true. That being said, he’s been with a smaller number of women. I had about a 1 in 4 chance, so it’s nothing to brag about. Because he told me this, he became curious if he was mine.
-
-Lastly I just want to say to all the insecure me who commented and DM’d me in a genuine nice way, I’m sorry you feel that way. But remember she chose you. She chooses you every single day she’s with you. If she didn’t think you were special and amazing and the “best” person available for her you wouldn’t be with her. Most men don’t do the bare minimum, if you are focusing on her pleasure you’re already doing better than 80% of men. Chances are, if you’re not the best, but you have a good sex life, you’re pretty damn close.
-
-If you’re not her Michael Jordan, you’re probably her Larry Bird.
-
-So onto the update.
-
-So yesterday night the question came back up again. I told him I wanted to have an open discussion about the question and I had evaded answering because I genuinely needed time to think about it.
-
-First I told him that, I didn’t want to sleep with any man anymore except him for the rest of my life. I told him that if I couldn’t have sex with him and only him, I wouldn’t ever have sex with anyone again. Which is all true.
-
-Next I told him that I would never choose a relationship based solely on how good the sex was and that being an amazing lover is worthless if I don’t feel emotionally cared for. That being emotionally cared for transforms sex into something completely different and that is what I want above all else in bed. Someone who I feel emotionally cared for me and makes me feel safe, sexy and above all else, loved.
-
-Here’s where I’ll lose people I gave him the honest answer. I told him that I have had experiences that were exceptionally good due to factors outside of skill in bed. However when I look back on those experiences they aren’t something I want anymore. I want him.
-
-I felt like this was a very careful way to give him a genuine answer that still made it clear I put him over all other men without dodging or lying.
-
-The last thing I mentioned was that we have our entire lives together to create new sexual experiences and for us to learn each other’s bodies and make each other feel things that we’ve never felt befor, but the only way to do that is if we don’t focus on what happened in the past and what we can do in the future. I said that I have no doubt that he’ll be the best I’ve ever had if we both put in a little more work into perfecting our sex life and communiting our needs as desires to each other, which is something we don’t do as much as we should. I told him I’m willing to validate him as much as he needs me to to ensure that he doesn’t feel insecurity about this.
-
-He took it very well. He told me he did feel insecure since I’m his best and I’m so much more experienced and was worried if he’s not but what I said made him feel better and he agreed that we should be doing more communication. So our homework is to now look to the future, think about what we can do to take our sex life to the next level without worrying about the past.
-
-We also decided to book a cruise for the holidays. So we could do 3 things we’ve both never done before, go on a cruise, visit another country, fuck the absolute hell out of each other on a cruise. So I’m feeling optimistic.
-
-Thanks for all the suggestions i would’ve royally fucked that up without them.
-
-Edit: l can’t believe I need to say this, but the guy in question is not my best due to his penis size. Drop it, men are needlessly obsessed with the size of other mens dicks. It’s weird.
-
-View full post
-r/technicallythetruth
-•
-5 hr. ago
-Kenzaburo Oe, a noble laureate
+20 hr. ago
+What is far more rare than people realize?
 r/gaming
 •
-19 hr. ago
-What's one game that failed so bad it brought down an entire company?
+22 hr. ago
+What's the best game you went into completely blind , having no idea what it's about?
 
-If I remember right from Matt Mcmuscles video (who I still watch a lot to this day), Lair killed Factor Five.
+One aspect I miss about gaming from when I was younger was just buying games at the shop without having ever heard of them before
 
-r/meirl
+The best experience had to have been Fallout 3, I had 0 idea what kind of game it was, being able to choose dialogue, kill everyone (pretty much), starting as a baby then leaving the vault into this huge open world was mind blowing
+
+New Vegas is now my favorite Fallout game but 3 will always hold a special place in my heart for this reason
+
+r/pics
 •
 4 hr. ago
-Meirl
-r/nba
-•
-23 hr. ago
-[Post Game Thread] Germany beats the United States in the FIBA World Cup knockout semifinals, 113-111. They will face Serbia in the gold medal match.
-https://www.fiba.basketball/basketballworldcup/2023/game/0809/USA-Germany#tab=overview
-r/AITAH
-•
-20 hr. ago
-AITA for wanting a divorce because my wife doesn’t want her son to be legally mine
-
-I’ve been in her sons life for the past 4 years since he was 2 , he already calls me dad all that’s left is to make it legal, but my wife thinks that decision to make it legal should be up to her son but wants to wait till he is old enough to make that decision which I think is completely silly right ? She also doesn’t want anymore kids which I’ve come to terms with. I’m at a loss now I don’t know what to do. I also heard from her friend she doesn’t want to make it legal because if we divorce she doesn’t want to have to fight me for custody. Edit: she changed her mind about wanting more kids because of her career I accepted it and we compromised on letting me adopt him but now she’s stalling .the bio dad has never been in the picture, she doesn’t even know who he is . UPDATE: she has agreed to let me be the legal guardian in case anything happens to her and we will continue to wait till he is old enough to decide if he wants to be adopted. This is not what I want but I’m willing to compromise. Thank you all for your comments.
-
-r/nextfuckinglevel
-•
-21 hr. ago
-Customer displays serious bravery by stopping armed robbery without any hesitation.
-r/AmItheAsshole
-•
-22 hr. ago
-AITA For telling my wife I hate her new job
-
-My wife (37F) and I (38M) have been married for 12 years and have 3 kids (10, 8, & 6). During the pandemic, my wife's job allowed her to switch to 100% WFH. They never required her to go back to the office because her productivity actually increased so there was no need. It made things easier for us too. I dropped the kids off at school/daycare in the morning and she picked them up in the afternoon. She was able to keep up with a few things around the house during the day, we saved on gas and car maintenance, etc.
-
-A few months ago, she was contacted by a recruiter about a job. It would be a nice step up in her career path as well as a boost in pay. But there were drawbacks. The company had no WFH policy and would require her to work in the office. This was apparently non-negotiable. It would also be a 45-minute commute for her.
-
-We talked it over a lot and I expressed my concerns about how this would impact our daily lives. I told her that I don't necessarily think that the bump in pay is worth the major changes to our daily lives. Not to mention the stress that a long commute can have on people and that could impact their mood and how they interact at home.
-
-She assured me that everything would be fine and that we would adjust as a family and soon the new routine would just become our new normal. I told her that I would never tell her NOT to take the job, but I just don't know if it is worth the changes that it is going to bring. Ultimately, the decision was hers and she accepted the new job. She's been there for about 10 weeks now.
-
-To say it has been an adjustment is an understatement. She wakes up and leaves before the kids even get up. She'll help get a few things ready for them before she goes, but the entire morning kid routine is on me. I also do both drop-off and pick-up for all the kids too. Evenings have been a huge mess because I get home and try to get the kids distracted while I start dinner. When my wife gets home, she is usually stressed from the drive (her commute has turned into over an hour due to construction and traffic) and takes 15 minutes for herself to calm down before eating alone. Then, after dinner she's going to bed earlier because she has to wake up earlier.
-
-I told her that I feel her new job has put an unfair amount of household and childcare duties on me and that she is being far less present in our lives when she's home. She told me that we just need to give it more time to adjust and things will get easier. I told her that 10-weeks is a pretty good adjustment period and I hate it so far. She told me I'm being an unsupportive jerk and I need to give it more time.
-
-EDIT: I don't have the emotional bandwidth right now to deal with the huge amount of sexist BS I'm getting here. Those kind of responses are why men don't open up when they feel EXACTLY like I do right now and just bottle this up. I have to get ready to pick up my kids. They're getting happy meals tonight because f*&^ it.
-
-View full post
-r/dankmemes
-•
-3 hr. ago
-Horses fell off
+Martin Eberhard and Marc Tarpenning, the founders and inventors of Tesla, 2006.
 r/WhitePeopleTwitter
 •
-21 hr. ago
-Holy crap! A 22yo acting like a 22yo! The horror....the HORROR!
-r/todayilearned
+2 hr. ago
+I'm completely lost what the right are even dogwhistling about here
+r/shitposting
 •
-17 hr. ago
-TIL that medical students disproportionately come from affluent backgrounds
-https://www.mprnews.org/story/2022/03/21/study-finds-medical-students-disproportionately-come-from-affluent-backgrounds
-r/Damnthatsinteresting
-•
-9 hr. ago
-This guy turned his eye into a flashlight
-r/nextfuckinglevel
-•
-9 hr. ago
-Ever see a cloud get deleted?
-r/facepalm
-•
-8 hr. ago
-Sensitive topic
-r/TikTokCringe
+3 hr. ago
+Called it Heil spez
+r/movies
 •
 18 hr. ago
-The republican/conservative “Quiet Code” 😂😂🤣
-r/BlackPeopleTwitter
-•
-22 hr. ago
-I'll never understand people that get a new phone every year. What's even the point?
-r/therewasanattempt
-•
-6 hr. ago
-to ask for more 💰
-r/TrueUnpopularOpinion
-•
-19 hr. ago
-People who support Communism on Reddit have never lived in a communist country
+Which "famous" movie franchise is pretty much dead?
 
-Otherwise they wouldn’t support Communism or claim “the right communism hasn’t been tried yet” they would understand that all forms of communism breed authoritarian dictators and usually cause suffering/starvation on a genocidal scale. It’s clear anyone who supports communism on this site lives in a western country and have never seen what Communism does to a country.
+The Pink Panther. It died when Peter Sellers did in 1980.
 
-Edit: The whataboutism is strong in this thread. I never claimed Capitalism was perfect or even good. I just know I would rather live in any Western, capitalist country any day of the week before I would choose to live in Communism.
+Unfortunately, somebody thought it would be a good idea to make not one, but two poor films with Steve Marin in 2006 and 2009.
 
-r/WhitePeopleTwitter
+And Amazon Studios announced this past April they are working on bringing back the series - with Eddie Murphy as Clouseau. smh.
+
+r/BikiniBottomTwitter
 •
-3 hr. ago
-Tophy for the win!
-r/youngpeopleyoutube
+23 hr. ago
+What video game is this for you
+r/facepalm
 •
-4 hr. ago
-are you kidding me
-r/comics
+1 day ago
+Brilliant idea
+r/unpopularopinion
+•
+23 hr. ago
+Men who leave after finding out a child is not theirs are unfairly vilified
+
+There is a kind of post I see occasionally on subreddits like AITA, AITAH, relationshipadvice, etc. that fits this basic structure:Man finds out the mother of his child/children cheated on him around the time their child was conceived, gets or wants a DNA test to find out if child is biologically his, finds out they are not, and leaves that family. There are variations of this but that's the basic premise.Every. Single. Time. that man is torn apart in the comments, saying that blood does not matter, the child is not at fault, how on earth could he leave them etc.Frankly, I think this is nonsense, through and through. The narrative of these comments always focuses on the man being horrible for leaving and that the child is his because of the time they spent together and not that he was a victim of a lying spouse that deceived him for years. And for a relevant bit of background, I was adopted as a child and I absolutely believe blood/genetics do not matter in making a family at all. But the big thing there is that for my parents, there was a choice. They made the informed decision that they would accept my as their child, it was not forced on them.Now don't get me wrong, I don't think the men in these examples are saints at all, but so often they are accused of never even caring for the kid(s) and that they must be terrible for being so ruthless. What never gets mentioned, or is at least glossed over, is that the man in question just had his whole life upended by finding out that his partner in life cheated and deceived him for possibly years on end and his life is going to be turmoil. And if this occurs in the US at least, the man is still going to be on the hook for child support even with the proof the kid is not his, meaning he doesn't even get to go restart his life if he wants to, but instead is tied to the situation where he was the victim.You can hope that the man's love for the child might break through that, but it's unfair to attack him because he isn't strong enough to overcome what was done to him. To him, that child will be the living embodiment of the mother's deception and cruelty and to ridicule someone for not wanting that to be part of their life is absurd.Lastly, for the people who say something like "I could never leave my child/I wouldn't do that!"... well good for you, but it's easy to say that sort of thing, and even if its true, that doesn't mean someone who can't handle that sort of thing is a monster.
+
+Edit: You know someone is mad when they report you to RedditCareResources... Thank you for what I am sure is completely sincere concern, but I'm doing great.
+
+View full post
+r/madlads
 •
 7 hr. ago
-CRUSHER OF SOULS (Swipe)
+Meanwhile in Baune, France
+r/mildlyinteresting
+•
+20 hr. ago
+My local coffee shop has plaques on each table forbidding schoolwork.
+r/Starfield
+•
+22 hr. ago
+Time for the real questions, Who did YOU first romance in Constellation? WHY was it Andreja?
+r/AITAH
+•
+18 hr. ago
+WITAH for not impregnating my SIL?
+
+I will keep this as short as possible. I (M35) married my wife (31) five years ago and have lived together for eight years. We had our first child 4 years ago and second child a year ago: both boys. Her sister (33) has been married for 7 years, and in that time had one child: a boy. After the birth of her child, her husband was in an accident and can no longer produce another child. My SIL and her husband approached my wife to see if I would be interested in donating my sperm in order for my SIL to give birth to one more child. My wife thought it was a great idea, and made the decision for me to proceed with the process without consulting me. I was against it at first, but I came around to the point where I was willing to speak with the fertility doctor, but I let them know I was not saying yes at this point as the whole idea still seemed weird as my kids would essentially be half siblings to this new child.
+
+Well, after meeting with the doctor, it became very clear this was not an option as my SIL does not work and her husband only makes about 50 grand a year. They could not afford the procedure. They asked my wife and I to help offset the cost, but that was not an option I was willing to explore as I only make about 85 grand a year, and we recently purchased a new home, are trying keep invest in college funds etc. It was a hard no from me, and my wife was okay with that, but I think she would have found a way to get them some if not all the money. I told her she could put that decision on me, and she did exactly that.
+
+Well, my SIL was upset, and she called us selfish. It turns out my SIL knew we had quite a bit of money set aside in the kids college fund as before the kids were born my wife was working, and we both put away a lot of money that we eventually turned into college funds for our kids. We have roughly 45 grand set aside, which I don't think is enough, and we keep adding to it when we can. Anyway, a couple days go bye and things seemed to have calmed down, but my SIL then asked my wife if she could essentially sleep with me in order to get pregnant. My wife was vehemently opposed to this at first but after her sister explained she wasn't attracted to me and there would be no passion but just a means to an end, my wife thought it might be a good idea. To be clear, my SIL's husband is okay with this plan. My wife I asked me to go ahead with it, but I refused. I told her they can adopt a kid out of foster care if they want another kid that bad. Now, my SIL is mad at me along with my wife as she believes this would just be a good way to help them have another child. I am standing by my decision, and I have been sleeping in the spare bedroom since my hard no, but I am starting to doubt thinking I might be being unreasonable. So, AITAH for refusing to impregnate and sleep with my SIL?
+
+Edit one:
+
+The money is in a joint account that requires two signatures for a withdrawal, so my wife can't take the money.
+
+Edit two:
+
+My SIL doesn't want to sleep with some random guy as in her mind and her husband's mind that would be cheating, but it is not cheating if it is me since I am quote unquote unattractive. I'm at work and will edit when possible but cannot possibly respond to every comment. I appreciate all the support as I felt strongly I was in the right. I won't feel guilty anymore, even if it was just a little guilty.
+
+Edit three:
+
+Too all the people suggesting divorce, it has never been an option for me as I love my wife, but she seems to be easily manipulated by her sister, which is nothing new. Also, it is very expensive to get divorced and would be traumatic on my young kids. I have to think about my kids well-being.
+
+Edit four:
+
+Maybe I should get snipped, but I haven't yet as my wife wants one more child and is hoping for a daughter.
+
+Edit five:
+
+My wife has always been manipulated by her sister. Their parents were much older when my wife and my SIL were born, and my SIL was supposedly always good at getting her way. When their parents died, I think my SIL was even more domineering. We moved a town over just for some space, but it hasn't helped much. I was an only child, so I don't quite understand the dynamic. I grew up pretty sheltered, but I had a good childhood and went to a good college where I was able to earn a masters in history.
+
+Edit six:
+
+Too all the people asking if SIL is hot. She is big as she must weigh over 250 pounds. I guess she could still be considered pretty. She is much bigger than me, however, as I weigh 150 wet. I was a cross country kid, and I've been able to stay in shape. My wife was a little over weight when we met, nothing like her sister, but she does enjoy jogging with me when time permits and has slimmed down some.
+
+Edit Final:
+
+My head was spinning from all the comments, and I couldn't even read half of them as this seems to have attracted a little attention. I appreciate all the support and those who understood I was doing the right thing. My sense of right has become a little warped the last few years, and I probably need to recalibrate.
+
+Anyway, when my wife finally came home last night, she was visiting her sister with the kids, we had a talk, and it didn't go as I thought it would. I knew I was in the right, but I have a difficult time standing up to my wife as she is the first and only woman I've ever been with, and while I am not going to go into all the details of our conversation, I've come to the conclusion my wife will never be able to cut her sister out of her life, and it is clear her sister will always be in charge of that side of the family. When I made the suggestion she do that, she just started yelling and breaking things like she always does as she knows I will back down at that point. I am not sure I can live like that anymore as she has broken a lot of my stuff over the years, and I always laughed it off as my fault for upsetting her. This situation has opened my eyes. Maybe a divorce wouldn't be such a bad thing in the long run. This has given me a lot to process. I've always considered myself a nerd, my parents always told I was one jokingly, but it was true, so I've never had much when it comes to self-esteem. I've let people run over me most of my life. I've come to realize I probably need to get into therapy. Thanks again for all the support!
+
+View full post
+r/TikTokCringe
+•
+22 hr. ago
+"We are making more money than we ever made, and are literally the brokest we've ever been."
+r/Damnthatsinteresting
+•
+22 hr. ago
+What it's like inside a North Korean home
+r/MapPorn
+•
+21 hr. ago
+The state of democracy around the world
+r/me_irl
+•
+6 hr. ago
+Me_irl
+r/WhitePeopleTwitter
+•
+15 hr. ago
+The party of family values strikes again: Lauren Boebert ditched her sex offender husband for the opportunity to jack dudes off in a crowded theater.
+r/wholesomememes
+•
+3 hr. ago
+A pro gamer move
+r/facepalm
+•
+4 hr. ago
+Easiest way to lose $290k
+r/SipsTea
+•
+21 hr. ago
+When he looks like a frog
+r/news
+•
+17 hr. ago
+Ashton Kutcher resigns from anti-child sex abuse organization after backlash over Danny Masterson letter
+https://www.nbcnews.com/news/rcna105356
+r/Showerthoughts
+•
+19 hr. ago
+People feel less pain buying a $1000 phone every couple years than buying a $1000 fridge or TV every couple decades
+r/pics
+•
+21 hr. ago
+There are (6) active Weinermobiles in the world; and (5) of them are in this parking lot.
+r/technology
+•
+18 hr. ago
+Texas power prices soar 20,000% as brutal heat wave sets off emergency
+https://markets.businessinsider.com/news/commodities/texas-power-prices-20000-percent-heat-wave-ercot-grid-emergency-2023-9
+r/tumblr
+•
+4 hr. ago
+Fat Tits Nun
+r/meirl
+•
+8 hr. ago
+Meirl
+r/Fauxmoi
+•
+21 hr. ago
+Hugh Jackman and Deborra-lee Separate After 27 Years of Marriage
+https://people.com/hugh-jackman-and-deborra-lee-jackman-separate-exclusive-7970286
