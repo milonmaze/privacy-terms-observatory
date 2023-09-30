@@ -1,55 +1,51 @@
 Advertisement
-PayDay3
+NFL Week 4
 
-Current status of PayDay 3 in a nutshell
-
-r/paydaytheheist
-and more
-Jujutsu Kaisen
-
-“Next.” (Coloured by me)
-
-r/JuJutsuKaisen
-and more
-NFL Week 3
-
-Chicago Bears: Complete timeline of their 2023 season disaster (so far)
+[Schefter] NFL and NFLPA are modifying its gambling policies. There now will be increased discipline for gambling on NFL games. Now a violation is one year, and two if a player bets on his own team. Any game fixing will result in banishment. Message from NFL-NFLPA: don’t bet on the NFL.
 
 r/nfl
 and more
-Rugby World Cup
+Counter-Strike 2
 
-Portugal's First Try in the Rugby World Cup 🐺🇵🇹🏉
+Counter-Strike 2 released
 
-r/rugbyunion
+r/SteamDeck
+and more
+Ryder Cup
+
+Keegan Bradley watching the Ryder Cup
+
+r/golf
 and more
 Cyberpunk 2077
 
-Cyberpunk 2077: Update 2.0, The free Update 2.0 for Cyberpunk 2077 is now available!
+How cyberpunk 2077 character look in 3rd person
 
-r/cyberpunkgame
+r/Asmongold
 and more
-Japan Grand Prix
+New York Film Festival
 
-2023 Japanese Grand Prix - Free Practice 1 Results
+2020 Palm Springs International Film Festival Awards
 
-r/formula1
+r/salmahayek
+and more
+Rugby World Cup
+
+New Zealand flag spotted in Rugby World Cup crowd
+
+r/vexillology
 and more
 Create a post
-r/funny
+r/AskReddit
 •
-18 hr. ago
-Boomers don’t even know.
-r/ask
+16 hr. ago
+What are the cons of NOT having kids?
+r/texts
 •
-21 hr. ago
-Straight men of reddit why do you like thick thighs soo much?
-
-I keep seeing these reels where the guy wants to get suffocated by the girls thighs and the comment section is filled with other guys commenting how he has achieved life's purpose. I don't get if this is a joke or you guys actually want it
-
-By thick I mean bigger thighs with a regular body. Not fat you guys are misinterpreting it.
-
-r/aww
+22 hr. ago
+We went on one “date”..:
+r/shitposting
 •
-5 hr. ago
-The chosen one ... literally
+4 hr. ago
+I love Daddy Spez (real height)
+ 
