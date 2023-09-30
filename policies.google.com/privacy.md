@@ -425,6 +425,7 @@ Specific Google services
 
 The following privacy notices provide additional information about some Google services:
 
+Chrome & the Chrome Operating System
 Payments
 Fiber
 Google Fi
@@ -513,4 +514,4 @@ Türkçe
 中文（简体中文）
 中文（繁體中文）
 日本語
-GoogleAbout GooglePrivacyTerms
+GoogleAbout GooglePrivacyTermsTransparency Center
