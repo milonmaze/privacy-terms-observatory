@@ -1,5 +1,6 @@
 Jump to content
-[dismiss]
+
+Photograph a historic site, help Wikipedia, and win a prize. Participate in the world's largest photography competition this month! Learn more
 
 Welcome!
 
