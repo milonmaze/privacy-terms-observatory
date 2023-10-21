@@ -20,7 +20,7 @@ Disclaimer: This summary is not a part of the Privacy Policy and is not a legal 
 
 
 
-Because we believe that you shouldn’t have to provide personal information to participate in the free knowledge movement, you may:
+Because we believe that you should not have to provide personal information to participate in the free knowledge movement, you may:
 
 Read, edit, or use any Wikimedia Site without registering an account.
 Register for an account without providing an email address or real name.
@@ -89,7 +89,7 @@ Because everyone (not just lawyers) should be able to easily understand how and 
 
 
 
-When we say…	…we mean:
+When we say...	...we mean:
 "the Wikimedia Foundation" / "the Foundation" / "we" / "us" / "our"	The Wikimedia Foundation, Inc., the non-profit organization that operates the Wikimedia Sites.
 "Wikimedia Sites" / "our services"	Wikimedia websites and services (regardless of language), including our main projects, such as Wikipedia and Wikimedia Commons, as well as mobile applications, Application Programming Interfaces (APIs), emails, and notifications; excluding, however, sites and services listed in the "What This Privacy Policy Doesn't Cover" section below.
 "you" / "your" / "me"	You, regardless of whether you are an individual, group, or organization, and regardless of whether you are using the Wikimedia Sites or our services on behalf of yourself or someone else.
@@ -434,11 +434,11 @@ Please note that in the event of any differences in meaning or interpretation be
 
 This version was approved by Amanda Keton on June 7, 2021, pursuant to the Delegation of policy-making authority by the Board, and went into effect on June 25, 2021. Previous versions can be found below:
 
-Privacy Policy (May 2018 - June 2021): effective from May 24, 2018 until June 24, 2021
-Privacy policy (June 2014 - May 2018): effective from June 6, 2014 until May 24, 2018
-Privacy policy (November 2008 - June 2014): effective from November 25, 2008 until June 6, 2014
-Privacy policy (August 2008 - November 2008): effective from August 19, 2008 until November 25, 2008
-Privacy policy (June 2006 - August 2008): effective from June 21, 2006 until August 19, 2008
+Privacy Policy (May 2018 - June 2021): effective from May 24, 2018, until June 24, 2021
+Privacy policy (June 2014 - May 2018): effective from June 6, 2014, until May 24, 2018
+Privacy policy (November 2008 - June 2014): effective from November 25, 2008, until June 6, 2014
+Privacy policy (August 2008 - November 2008): effective from August 19, 2008, until November 25, 2008
+Privacy policy (June 2006 - August 2008): effective from June 21, 2006, until August 19, 2008
 Privacy policy (April 2005 to June 2006): effective from April 2005 until June 21, 2006
 +/-
 translate
