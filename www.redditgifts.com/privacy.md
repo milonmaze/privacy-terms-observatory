@@ -1,223 +1,181 @@
-Israel-Hamas war
+Spider-Man 2
 
-Airstrikes hit Palestinians fleeing northern Gaza after Israel orders 1 million to evacuate
+Spider-Man PS5 and Spider-Man 2 PS5 comparison
 
-r/worldnews
+r/PhotoModePhantoms
 and more
-Celebrity Gossip
+US Grand Prix
 
-Hailey Bieber shares that she has made donations in support of civilians in Israel and occupied Palestinian territories.
+Mercedes AMG F1 Team - 2023 US Grand Prix Track Map
 
-r/Fauxmoi
-and more
-NFL Week 6
-
-2023 NFL quarterly report: Assessing all 32 teams entering Week 6, from true contenders to total nightmares
-
-r/nfl
-and more
-Cricket World Cup
-
-Cricket World Cup has just begun
-
-r/cricketworldcup
-and more
-Lords of the Fallen
-
-Lords of the Fallen is available now on Steam
-
-r/pcgaming
+r/formula1
 and more
 Rugby World Cup
 
-Rugby World Cup on Instagram: "Portugal Rugby have inspired a new generation of rugby fans 🙌 #RWC2023 | #FIJvPOR | @portugalrugbyoficial"
+England name team to face South Africa | RWC 2023
 
 r/rugbyunion
 and more
+NFL Week 7
+
+Derek Carr’s willingness to publicly blame teammates will strain his relationship with them
+
+r/nfl
+and more
+Super Mario Bros. Wonder
+
+Super Mario Bros. Wonder releases...
+
+r/Mario
+and more
+NHL
+
+Rasmus Anderson hits Laine in the head with seconds left in a 1-3 game
+
+r/hockey
+and more
 Create a post
-r/Cricket
-•
-7 hr. ago
-Match Thread: 12th Match - India vs Pakistan
-12th Match, ICC Cricket World Cup at Ahmedabad
-
-Cricinfo | Reddit-Stream | 🌤 🌤 🌤 ☁️ ☁️
-
-Innings	Score
-
-Pakistan	191 (Ov 42.5/50)
-India	156/3 (Ov 21.4/50)
-
-Score/Win Prediction : 99.28%
-
-Batter	Runs	Balls	SR
-
-Shreyas Iyer*	36	38	94.74Bowler	Overs	Runs	Wickets
-
-Shaheen Shah Afridi	4.4	34	2
-Mohammad Nawaz	4	26	0
-Recent : . 1 1 1  |  1 . 2 . 4 6  |  6 1 . 4 . 1  |  1 . 1 W 
-
-India need 36 runs from 28.2 overs.
-
-Live match threads: South Africa Women vs New Zealand Women | Ghana vs Sierra Leone |
-
-Send feedback | Schedule | Stat Help | Glossary
-
-View full post
-r/worldnews
-•
-14 hr. ago
-/r/WorldNews Live Thread for 2023 Israel-Hamas Crisis (Thread 18)
-https://www.reddit.com/live/1bsso361afr0r
-r/pics
-•
-5 hr. ago
-My life in passport photos -- 1954 to 2023
-r/me_irl
-•
-4 hr. ago
-me_irl
-r/aww
-•
-6 hr. ago
-This is what happens every day at the end of work hours - 'It's time to stop working!'
-r/movies
-•
-10 hr. ago
-What movie had you laughing, unable to breathe, even just for one scene?
-
-I don't really pursue comedy movies too often, or ever really.
-
-And even then, this doesn't have to be a comedy movie you respond with, but I'm wondering if there was a movie scene SO funny, that people laughed uncontrollably.
-
-Does such a thing exist?
-
-I think maybe the movie would have to introduce something completely original. Not a familiar gag or joke, but something completely unexpected that you can't help but be paralyzed by the newness and brilliance of the scene.
-
-r/AskReddit
-•
-18 hr. ago
-What's a sign that someone is straight up trashy?
-r/JustGuysBeingDudes
-•
-5 hr. ago
-Men if you are sad
-r/AmItheAsshole
-•
-14 hr. ago
-AITA for refusing to let my wife name our kid something stupid?
-
-Me (25m) and my wife (23f) are having our first child together. She is currently 9 months pregnant and could give birth anytime in the next couple of weeks. The only major fight we have had throughout her pregnancy happened a couple days ago, and it was about what we were going to name our kid.
-
-It all started when we found out the gender of the baby. We didn’t do a gender reveal and decided to find out the gender at one of her checkups because we didn’t want to spend time making two lists of names then have to get rid of one after. So after we found out we were having a boy we sat down together and made a list. Almost all of the names she suggested were normal, until the one that caused me to write this post. She suggested we name our son Mune. She told me the name was from this movie she watched when she was younger and that it always stuck with her. I told her the name was a little out there and he would get made fun of for it. She claimed he wouldn’t and we started going back and forth trying to decide whether to add the name to the list or not. Eventually she agreed to keep the name off the list, we picked some that we liked, and I thought that was that.
-
-Later on in her pregnancy her mom decided to throw a baby shower as it was her first grandchild, and my wifes pregnancy was almost over and we hadnt celebrated once. It was fine for the most part until we started to open the gifts. Most of them were normal baby things like diapers and bottles, until we got to her moms gift. My wife opened the gift bag and pulled out a blue handmade blanket. It seemed normal enough at first until my wife unfolded it and low and behold there was the name Mune written on the blanket. When I saw it i was pissed but didn’t want to cause a scene so i stayed quiet. After that reveal I had family members come up to me and ask me about the name and why i hadnt told them. I didnt know what to tell them as i didnt have a clue about this either and just had to embarrassingly tell my family that, which pissed me off even more.
-
-Once the event ended and me and my wife went home I started to question her about the name. She got defensive and told me that it was a good name and that i was overreacting about it. I brought up the earlier points and told her it was a stupid name for a kid and if she wanted to name something Mune so bad she could use the name for a dog. She got upset and called her mom to come get her. After she left she called me and told me she wouldn’t be coming back for awhile. Everyone ive talked to about this has said im not the asshole, but now that my wife has been gone and ive been thinking about it I feel like I could have handled the situation better. Aita?
-
-r/MapPorn
-•
-15 hr. ago
-Israel's Evacuation zone in Gaza, inhabited by more than 1 million people.
-r/CFB
-•
-8 hr. ago
-[Postgame Thread] Stanford Defeats Colorado 46-43 (2OT)
-
-Box Score provided by ESPN
-
-Team	1	2	3	4	OT	T
-
-Stanford	0	0	19	17	10	46
-Colorado	14	15	0	7	7	43
-Made with the r/CFB Game Thread Generator
-r/funny
-•
-7 hr. ago
-How stupid are you
 r/AITAH
 •
-20 hr. ago
-AITAH if I call off my engagement because of a comment my fiancé made about my late wife?
+23 hr. ago
+I left her because she made me wait for sex, AITAH?
 
-For some background info I (43m) have 2 children with my late wife Kayla. Sam (21m) and Liz (16f). All fake names. Kayla passed away when our kids were 15 and 10. I won’t give specifics about how she passed but she was struck by a drunk driver when she was on her way home from work. She really was the love of my life and to say that her passing hit our family hard would be an understatement. I promised myself that if I got back into the dating game I wouldn’t date anyone for at least a couple years for the sake of my kids. 3 years after my wife’s passing, I met my now fiancé. We’ll call her Amanda. Things went slow and I didn’t introduce her to my kids until we had been dating for about a year at that point. Now we’ve been together for 3 years and are engaged. Amanda and my kids have always had a good relationship. Neither of my kids are super close to her but they have always been friendly and welcoming to her, and Amanda has never overstepped any boundaries my kids have, like trying to replace their mother.
+The title spells it out alright. Me - 26 M, Her - 26 F
 
-At the beginning of Amanda and I’s relationship, she was a bit insecure of the fact that I was a widower. During the first few months of us dating she would constantly ask things like “if Kayla had never passed, would I still be with her right now.” I always kept my answers brief, and told her that I didn’t like thinking about the “what ifs” and that she was the one I was dating now and that was what mattered. Eventually she stopped making these comments and I stopped worrying about it.
+I've been seeing a woman for three and a half months and things were going great except for the lack of sex. Now I didn't mind this because she said she really likes being with me and is interested in building something long term and wishes to take it slow. Fine by me. But then last Friday we were making dinner at my place and having drinks and the awkward topic of our past came up. I didn't bring it up. She did. Asking about exes and whatnot. Then she admitted she hadn't dated for a while. So out of curiosity I asked how she was getting her needs met and she mentioned having friends with benefits from time to time, okay, fine, it's not serious. But then she continued and is like I can see it's bugging you before spilling her guts basically. I didn't press her. She spilled. Again, she spilled. And I just stood there awkwardly cooking and having my drink.
 
-Now to the issue. My parents were hosting a family dinner to celebrate my fiance and I’s engagement. It was my mom and dad, my late wife’s sister and her husband, Sam and Liz, and me and Amanda. Dinner was going well, we were all making small talk with each other and talked about wedding plans. About half way into dinner my mom made a comment about how she was “so happy I was able to find the spark I had with Kayla in someone else.” I don’t think anybody really paid much attention to the comment but then Amanda laughed and said “I’m happy she died, otherwise I would have never gotten him to myself.” The tone of the dinner immediately shifted and everyone got extremely tense, especially my kids. Amanda noticed the shift and started awkwardly laughing like she was trying to play her comment off as a joke. I was honestly just frozen as that was the first time she had made a comment like that. My kids looked disgusted and Liz got up and walked out to the car. Sam waited a bit longer like he wanted me to say something but I was still in shock about what Amanda had said.
+She starts telling me how she knows it probably bothers me that we've not had sex but she really likes me and it's been years since she was in a relationship or even felt such a connection with someone. And she's been worried I'll think she is a slu+ or something if we slept together too quickly. Then from there she goes on to talk about how she had lots of sex between her last relationship and now which is a period of nearly five years. And every time she did hook up with someone new it made her feel like she was losing a piece of the woman she was who just loved romance and wanted to be with one guy but she was young and figured she would explore now rather than dealing with such feelings later when she found a great guy.
 
-To make a long story about the dinner short, the dinner was kind of ruined, so I said my goodbyes to everyone, grabbed my fiancé and we all drove home. My daughter hasn’t spoken to me or Amanda since and it’s been 3 days. I got tired of it and pulled my son aside to ask him what I should do. He said something along the lines of “I’m a grown man and don’t care who another grown man marries, but I don’t want a women who speaks like that about our mother around my sister.” Sam’s comment stuck with me and now I’m considering calling off the engagement entirely. She’s never made comments like this before but I’m worried if I let it slide this one time, it will become more frequent and it will affect my daughter. I need some advice from outside perspectives and just want to do right by my kids. WIBTAH if I called of the engagement because of the comment she made?
+So I asked her if they were all friends with benefits and she said no, that she had a number of one night stands from when she would go clubbing and partying, hookups from dating apps plus all the dudes she slept with more than once who she also met under those circumstances plus on social media. And she said she slept with all of them very quickly, often on the same day/night or within a couple days max.
 
-Edit: Wow I didn’t expect to get this much advice so shortly after posting this. Nonetheless thank all of you for the advice and even the people calling me a bad father. I think your guys words are what I needed to pull my head out my ass. I will try to talk to my kids alone tonight before speaking with my fiancé and we’ll see where it goes from here. I’m pretty sure my fiancé and I are over though. I’ll update late tonight or tomorrow on how the talks with everyone goes. Thank all of you again for setting my head straight.
+At this point I was feeling extremely jealous, I won't lie. Because I do like her very much and we've been having a good time without having sex, but knowing that she slept with so many guys very quickly but held off because we're 'serious' annoyed me. I haven't had as many partners as she's had but I've slept with past girlfriends and friends with benefits and outside of my first girlfriend from highschool, didn't wait with any of them more than a couple weeks. I don't think there's anything off putting about me. I've been relatively successful at dating and hooking up through my teens and twenties. I guess it instantly bothered me that she was willing to sleep with all these dudes but when it's serious she wants to wait. But it's still her choice, I guess. Out of annoyed curiosity I asked if she'd slept with anyone prior to us meeting and talking which was a month before we got together. She said yes that she'd dated one dude briefly for a month and they slept together the whole time earlier this year but it wasn't serious. Then she admitted to having sex with another guy a couple times just before we got together. So during the period we were speaking but not dating.
 
-r/facepalm
-•
-7 hr. ago
-Disgusting
-r/politics
-•
-14 hr. ago
-Ilhan Omar accuses Israel of "ethnic cleansing"
-https://www.newsweek.com/ilhan-omar-accuses-israel-ethnic-cleansing-1834666
-r/wholesomememes
-•
-6 hr. ago
-Don’t we all know that?
-r/hardimages
-•
-19 hr. ago
-Name this group
-r/facepalm
-•
-19 hr. ago
-The level of entitlement this person has I swear...
-r/clevercomebacks
-•
-2 hr. ago
-Bro fell for it
-r/MadeMeSmile
-•
-9 hr. ago
-Made me smile
-r/whenthe
-•
-3 hr. ago
-Guess what silly little activities Sssniperwolf has been up to
-r/meirl
-•
-7 hr. ago
-Meirl
-r/ImTheMainCharacter
-•
-19 hr. ago
-College Student turns computer volume up to 100 then proceeds to get angry at teacher for doing something about it
-r/LeopardsAteMyFace
-•
-1 day ago
-GOP member threatens to expose everyone if he gets ousted
-r/shitposting
-•
-4 hr. ago
-Heil spez
-r/ask
+At this point the tension is ridiculously high and she's apologizing and telling me how she's so sorry and knows I'm mad because she can see. I tell her to drop it because it's not gonna do us any good to continue the conversation. We have an awkward dinner then later that night she asks if I'd like to have sex. A day earlier it would have been an enthusiastic yes. That night? I felt like she was just guilty and trying to make me feel better. I turned her down and ended up sleeping in the spare room of my place. When she left the next day, I spent all day feeling sick. It bothered me. A lot. My mind was filled with all sorts of shit. That evening I sent her a message telling her I didn't think it will work out and explained that I just don't see anything for us down the road. I said her choices were her own and that's on her but I felt like I was being held to some unfair higher standard.
+
+It hurt. I liked her. But I knew it would constantly be on my mind how she slept around and did so pretty quickly while I waited because things were serious. I spoke to both guy and girl friends. My guy friends pretty much agreed with me breaking it off while my girl friends disagreed and almost across the board had a stance of 'guys don't really get it, it's different when you genuinely have feelings for someone vs something casual'.
+
+It's been a week since. I still feel sad. I've blocked her everywhere we talked. I do miss her but last Friday night still has me feeling fucked up.
+
+So, AITAH for leaving her because of this?
+
+View full post
+r/AskReddit
 •
 17 hr. ago
-My wife asked me to seduce her?
-
-My wife asked me just now to “seduce her” tonight. She sometimes struggles with low libido and has said sometimes she just feels “stuck” and needs that extra help to get in the mood.
-
-Any tips to help her get in the mood? I have my usual ways but tonight I want to make it a bit more special since she specifically asked 🥰
-
-r/unpopularopinion
+What are baby names people think are classy but really aren't?
+r/texts
+•
+22 hr. ago
+My gf slept over and slept in while I went to work. My brother wanted her to leave.
+r/politics
+•
+23 hr. ago
+Judge Threatens ‘Imprisoning’ Trump for 'Blatantly' Violating Gag Order
+https://www.thedailybeast.com/judge-threatens-imprisoning-trump-for-blatantly-violating-gag-order?ref=wrap
+r/therewasanattempt
+•
+17 hr. ago
+To get an instacart delivery without tipping
+r/pcmasterrace
+•
+3 hr. ago
+My Steam account is 19 y/o why do I still need to verify my age?
+r/MadeMeSmile
+•
+4 hr. ago
+Lovely Story
+r/mildlyinfuriating
 •
 18 hr. ago
-$10.000 is a fortune
+the way this man texts.
+r/RoverPetSitting
+•
+22 hr. ago
+Update4: Did the owner abandon the dog?
+r/wholesomememes
+•
+7 hr. ago
+Wholesome flight.
+r/ImTheMainCharacter
+•
+20 hr. ago
+Entitlement
+r/clevercomebacks
+•
+4 hr. ago
+Billionaire of the century
+r/facepalm
+•
+23 hr. ago
+Focusing on the issues that matter
+r/memes
+•
+6 hr. ago
+What happened to the vocabulary
+r/IRLEasterEggs
+•
+9 hr. ago
+Discovered this at 4am when messing with my tea kettle
+r/dankmemes
+•
+17 hr. ago
+They don't like back-talk. 🥲
+r/facepalm
+•
+4 hr. ago
+Funny how that works
+r/worldnews
+•
+20 hr. ago
+Israel Closes Al Jazeera Facilities
+https://www.telesurenglish.net/news/Israel-Closes-Al-Jazeera-Facilities-20231020-0010.html
+r/WhitePeopleTwitter
+•
+23 hr. ago
+If we weren’t in the darkest timeline this is the former tv host who should have been the US president
+r/mildlyinfuriating
+•
+4 hr. ago
+My mum painted my toothbrush red so I won't confused it with my brother's
+r/blackmagicfuckery
+•
+9 hr. ago
+He had to tell his mom - he was so flabbergasted...
+r/NoStupidQuestions
+•
+12 hr. ago
+Is it wrong to be proud of walking two miles?
 
-You will hear a lot of people say that it's not a big sum of money because of inflation or because it's not even worth half a year of salary in the USA. However in the bigger picture for most people in the world $10.000 is nearly live changing money.
+I'm about fifty pounds overweight. Instead of driving, or calling an uber.. I walked a mile there, and a mile back. Didn't collapse, didn't get run over. I'm proud of myself, but everyone I talk to seems to treat it like it's nothing.
 
-r/FunnyandSad
+Is it really just chump change to walk two miles?
+
+r/pics
+•
+16 hr. ago
+Greta Thunberg with some friends holding some signs
+r/movies
+•
+21 hr. ago
+In Back to the Future why do we instantly buy the relationship between Marty and Doc?
+
+Maybe this is more of a screenwriting question but it’s only been fairly recently that comedians like John Mulaney and shows like Family Guy have pointed out how odd it is that there’s no backstory between the characters of Doc and Marty in Back to the Future, yet I don’t know anyone who needs or cares for an explanation about how and why they’re friends. What is it about this relationship that makes us buy it instantly without explanation?
+
+r/nextfuckinglevel
 •
 8 hr. ago
-True That
+Making their own version of The Avengers.
+r/news
+•
+19 hr. ago
+Israeli Military Claims Responsibility for Church Blast in Gaza
+https://www.wsj.com/livecoverage/israel-hamas-war-gaza-strip-conflict/card/israeli-military-claims-responsibility-for-church-blast-in-gaza-ItyUvoIPaeNBEsIeIS6J
+r/cats
+•
+22 hr. ago
+My saved stray kitten died today. please stop and say something nice
+r/rareinsults
+•
+8 hr. ago
+Man Ricky is a savage
  
