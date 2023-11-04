@@ -1,73 +1,50 @@
-1989 (Taylor's Version)
+BlizzCon 2023
 
-1989 Taylor's Version
+BlizzCon 2023 Megathread!
 
-r/TaylorSwift
+r/classicwow
 and more
-NFL Week 8
+Fortnite OG
 
-NFL Power Rankings, Week 8: Chiefs reclaim No. 1 spot; rampaging Ravens soar into top five
+It's time to drop into #FortniteOG!
+
+r/FortNiteBR
+and more
+NFL Week 9
+
+[NFL] NFL Power Rankings, Week 9: Eagles, Ravens and Dolphins top board after shakeup; Chiefs, 49ers fall
 
 r/nfl
 and more
-Mexican Grand Prix
+Brazilian Grand Prix
 
-McLaren poster for the 2023 Mexican GP.
+Max Verstappen vs Sergio perez pitlane double overtake incident at qualifying Sao Paulo Brazil gp
 
 r/formula1
 and more
-NBA Opening Week
+NBA
 
-NBA opening night
+[Highlight] Steph Curry puts the Warriors up 2 with 0.2 seconds remaining
 
-r/HoosiersBasketball
+r/nba
 and more
-Rugby World Cup
+Cricket World Cup
 
-Rugby World Cup finalists
+Rachin now holds the record for most centuries in a debut world cup after scoring 100*(88)
 
-r/rugbyunion
-and more
-Celebrity Gossip
-
-What are the best examples of female rage on screen?
-
-r/popculturechat
+r/Cricket
 and more
 Create a post
-r/Cricket
+r/MadeMeSmile
 •
-11 hr. ago
-Match Thread: 27th Match - Australia vs New Zealand
-27th Match, ICC Cricket World Cup at Dharamsala
-
-Post Match | Cricinfo | Reddit-Stream | 🌥 🌥 🌥 🌥 🌥
-
-Innings	Score
-
-Australia	388 (Ov 49.2/50)
-New Zealand	383/9 (Ov 50/50)Batter	Runs	Balls	SR
-
-Lockie Ferguson*	0	1	0.0
-Trent Boult	10	8	125.0Bowler	Overs	Runs	Wickets
-
-Mitchell Starc	9	89	0
-Josh Hazlewood	9	70	2
-Recent : 6 1 . 1 1w 1 1  |  6 1 2 4 . .  |  1 5w 2 2 2 W .  |  
-
-Australia won by 5 runs
-
-Live match threads: Netherlands vs Bangladesh |
-
-Send feedback | Schedule | Stat Help | Glossary
-
-View full post
-r/mildlyinfuriating
+3 hr. ago
+Who needs candy when there’s a kitty
+r/NatureIsFuckingLit
 •
-16 hr. ago
-Customer came into the restaurant and gave the waiters this allergy list
-r/DnD
+2 hr. ago
+🔥 A young elephant hears his name and decides to interrupt an interview
+r/funnyvideos
 •
-23 hr. ago
-[OC] Giveaway: 3x Unrolly Mechanical Dice (mod approved)
+3 hr. ago
+Could you answer that question with a straight face?
  
