@@ -30,7 +30,7 @@ Your location information can help Google show you more relevant ads. When you s
 
 To make experiences more secure
 
-Google uses information about the general area that you’re in to provide some basic services, such as keeping your account safe by detecting unusual activity, or a sign-in from a new city.
+Google uses information about your location to provide some basic services, such as keeping your account safe by detecting unusual activity, or a sign-in from a new city.
 
 To show anonymous community trends, estimates, and for research
 
@@ -82,7 +82,7 @@ If you’re not signed in to your Google Account, Google may store some location
 
 From home or work addresses you saved
 
-You might choose to save places to your Google Account that are important to you, such as your home or your work. If you set your home or work addresses, they can be used to help you do things more easily, such as getting directions or finding results closer to your home or work.
+You might choose to save places to your Google Account that are important to you, such as your home or your work. If you set your home or work addresses, they can be used to help you do things more easily, such as getting directions or finding results closer to your home or work, and to show you more useful ads.
 
 You can edit or delete your home or work addresses anytime in your Google Account.
 
@@ -190,7 +190,7 @@ As described in the Google Privacy Policy, “some data we retain for longer per
 How is location information used for ads?
 To help show you more relevant ads
 
-The ads you see can be based on your location information. In general, ads on Google use the same types of location information as the products where they appear. For example, depending on your settings, ads on Search might be based on location from your device, your IP address, previous activity, or your home and work addresses from your Google Account.
+The ads you see can be based on your location information. In general, ads on Google use the same types of location information as the products where they appear. For example, depending on your settings, ads on Search and other Google surfaces might be based on location from your device, your IP address, previous activity, or your home and work addresses from your Google Account. In addition, metadata (e.g., browser timezone, domain, page content, browser type, page language) may be used to estimate your country or a general area you are interested in. We may rely on this metadata in addition to location signals that we get from your IP address, VPN, proxy service, or other network information.
 
 Using location information helps make the ads that you see more relevant to the area you’re in, or to areas that are relevant to you. For example, if your device’s location setting is turned on and you search on Google for restaurants near you, your current device location may be used to show you ads for restaurants near you. Your location may also be used to show you distances to nearby businesses as part of ads on Google.
 
