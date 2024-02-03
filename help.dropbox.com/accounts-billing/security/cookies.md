@@ -217,5 +217,5 @@ Dropbox sometimes receives requests from governments for information about users
 View article
 Other ways to get help
 Community
-Twitter
+X
 Contact support
