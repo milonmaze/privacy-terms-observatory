@@ -142,4 +142,4 @@ Menlo Park, CA 94025
 Date of Last Revision: January 4, 2022
 
 English (US)فارسیالعربيةTürkçeDeutschFrançais (France)PolskiSvenskaAzərbaycan diliEspañolPortuguês (Brasil)
-Sign UpLog InMessengerFacebook LiteVideoPlacesGamesMarketplaceMeta PayMeta StoreMeta QuestImagine with Meta AIInstagramThreadsFundraisersServicesVoting Information CenterPrivacy PolicyPrivacy CenterGroups
+Sign UpLog InMessengerFacebook LiteVideoPlacesGamesMarketplaceMeta PayMeta StoreMeta QuestImagine with Meta AIInstagramThreadsFundraisersServicesVoting Information CenterPrivacy PolicyConsumer Health PrivacyPrivacy CenterGroups
