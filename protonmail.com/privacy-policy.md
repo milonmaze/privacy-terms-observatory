@@ -1,6 +1,6 @@
 Proton - Privacy policy
 
-Last modified: June 26th, 2023
+Last modified: April 11, 2024
 
 At Proton, we strongly believe in an internet where privacy is the default.
 
@@ -35,32 +35,31 @@ Creating a Proton account will give you access to all our Services. It is not ne
 
 You also have the possibility to use our Proton VPN, Drive and Pass services with an external address. In this case, you have to provide your external address, which will be used as your account identifier. You can choose at any moment to create a Proton email address for this account to use Proton Mail and Calendar, too. Your email will only be used to contact you with important notifications about the Services, to send you information related to security, to verify your account or to send you password recovery links if you enable the option. We may also inform you about Proton products in which you might have an interest. The legal basis for processing is consent and you are free to modify this in your Account settings panel at any time.
 
-In order to pursue our legitimate interest of preventing the creation of accounts by spam bots or human spammers, we use a variety of human verification methods. Verification may also be requested for some sensitive operations besides account creation in order to protect against brute-force attacks. You may be asked to verify using either Proton Captcha, hCaptcha (or reCAPTCHA in the event that hCaptcha is unavailable), email, or SMS. IP addresses, email addresses, and phone numbers provided are saved temporarily in order to send you a verification code and for anti-spam purposes. The period of temporary data retention is determined by our legitimate interests of protecting the service from spam, and also by any applicable Swiss legal requirements we must comply with. If this data is saved permanently, it is always saved as a cryptographic hash, which ensures that the raw values cannot be deciphered by us. Learn more
+In order to pursue our legitimate interest of preventing the creation of accounts by spam bots or human spammers, we use a variety of human verification methods. Verification may also be requested for some sensitive operations besides account creation in order to protect against brute-force attacks. You may be asked to verify using either Proton Captcha, email, or SMS. IP addresses, email addresses, and phone numbers provided are saved temporarily in order to send you a verification code and for anti-spam purposes. The period of temporary data retention is determined by our legitimate interests of protecting the service from spam, and also by any applicable Swiss legal requirements we must comply with. If this data is saved permanently, it is always saved as a cryptographic hash, which ensures that the raw values cannot be deciphered by us. Learn more
 
 2.3 Referral program: Proton has a referral program that is open to Proton users, publications, non-profit organizations, etc. If you are coming to Proton via such a referral program, your subscription may be attributed to the referrer. Some referrals are managed internally by Proton while others may rely upon third-party platforms used by the referrers, and if you are coming to Proton via a referrer, our site may communicate with such referrer platforms for the purposes of crediting referrers.
 
 2.4 Account activity: The processing activities carried out by Proton for the operation of our different Services may vary depending on the Service. These activities are described in the specific Services' Privacy Policies.
 
-
 2.5 IP logging: By default, we do not keep permanent IP logs in relation with your Account. However, IP logs may be kept temporarily to combat abuse and fraud, and your IP address may be retained permanently if you are engaged in activities that breach our terms and conditions (e.g. spamming, DDoS attacks against our infrastructure, brute force attacks). The legal basis of this processing is our legitimate interest to protect our service against nefarious activities. If you enable authentication logging for your Account or voluntarily participate in Proton's advanced security program, the record of your login IP addresses is kept for as long as the feature is enabled. This feature is off by default, and all the records are deleted upon deactivation of the feature. The legal basis of this processing is consent, and you are free to opt in or opt out of that processing at any time in the security panel of your Account. The authentication logs feature records login attempts to your Account and does not track product-specific activity, such as VPN activity.
 
-2.6 Communicating with Proton: Your communications with us, such as support requests, bug reports, or feature requests may be saved by our staff. We may also rely on third parties, such as Zendesk (see below). If you use Proton's live chat support, you consent to having the data contained within your live chat interaction processed by Zendesk Inc, the provider of Proton's live chat support platform. The legal basis for processing is our legitimate interest to troubleshoot more efficiently and improve the quality of our Services. The information you provide when you contact our support team is processed for analytics purposes (such as to obtain aggregate statistics), but we do not do any targeted advertising or any profiling.
+2.6 Communicating with Proton: Your communications with us, such as support requests, bug reports, or feature requests may be saved by our staff. We may also rely on third parties, such as Zendesk or Calendly (see below). If you use Proton's live chat support, you consent to having the data contained within your live chat interaction processed by Zendesk Inc, the provider of Proton's live chat support platform. The legal basis for processing is our legitimate interest to troubleshoot more efficiently and improve the quality of our Services. The information you provide when you contact our support team is processed for analytics purposes (such as to obtain aggregate statistics), but we do not do any targeted advertising or any profiling.
 
-2.7 Communications from Proton: We mainly use your email address for account-related questions, communication, and recovery. By signing up to our Service, you agree to receive communications from us, which may include promotional emails. You can stop receiving emails from us by following the unsubscribe instructions included in every email we send. Alternatively, you can login
-(new window)
- to the Proton dashboard and adjust your email preferences under the ‘Account’ tab.
+2.7 Communicating with Proton's Sales team: if you are a Business customer or a business prospect and are contacting our Sales team via the dedicated forms, the data you provide is used solely for the purpose of processing your request and contacting you to assess whether our products will suit your needs. The legal basis for this processing activity is your consent.
 
-2.8 Payment information: We rely on third parties to process credit card, PayPal, and Bitcoin transactions and must therefore share payment information with them. We do not retain full credit card details, we only save your name and the last 4 digits of the credit card number. Anonymous cash or Bitcoin payments and donations are accepted. We may use your account data for payment-related matters, including but not limited to sending you emails, invoices, receipts, notices of delinquency, and alerts to update payment information. The legal basis of these processing activities is the necessity to the execution of the contract to provide the Services. In order to respect the principle of data minimisation, we reserve our right to remove payment information from our systems that is no longer valid, without notice.
+2.8 Payment information: We rely on Chargebee to process payments. Strictly necessary information is shared with Chargebee for credit card, PayPal, Stripe and Bitcoin transactions in order for the payment to be successful and associated with your account. Chargebee does not have access to your email or your Proton account information. We rely on third parties to process credit card, PayPal, and Bitcoin transactions and must therefore share payment information with them. We do not retain full credit card details, we only save your name and the last 4 digits of the credit card number. Anonymous cash or Bitcoin payments and donations are accepted. We may use your account data for payment-related matters, including but not limited to sending you emails, invoices, receipts, notices of delinquency, and alerts to update payment information. The legal basis of these processing activities is the necessity to the execution of the contract to provide the Services. In order to respect the principle of data minimisation, we reserve our right to remove payment information from our systems that is no longer valid, without notice.
 
 2.9 Native applications: When you use our native applications, we (or the mobile app platform providers) may collect certain information. We may use mobile analytics software (e.g. fabric.io
 (new window)
-) app statistics and crash reporting, Play Store app statistics, App Store app statistics, or self-hosted Sentry crash reporting) to send crash information to our developers in order to rapidly fix bugs. Some platforms, such as Google’s Play Store or Apple’s App Store may also collect aggregate, anonymous statistics, which may be governed by their respective privacy policies and terms and conditions. Such statistics can include most commonly used devices and operating systems, total number of installs and uninstalls, and the total number of active users.
+) app statistics and crash reporting, Play Store app statistics, App Store app statistics, or self-hosted Sentry crash reporting to send crash information to our developers in order to rapidly fix bugs. Some platforms, such as Google’s Play Store or Apple’s App Store may also collect aggregate, anonymous statistics, which may be governed by their respective privacy policies and terms and conditions. Such statistics can include most commonly used devices and operating systems, total number of installs and uninstalls, and the total number of active users.
 
 Our applications do not access or track any location-based information from your device.
 
 2.10 Social Media: We are active on Facebook, Instagram, Linkedin, Twitter, Reddit, and Mastodon. Any information, communication, or material you submit to us via social media platforms is done at your own risk without any guarantee of privacy. We cannot control the actions of other users of these platforms or the actions of the platforms themselves. Your interactions with those features and platforms are governed by the privacy policies of the companies that provide them.
 
 2.11 Links to other websites: Our website may contain links to other websites of interest. However, we are not responsible for the content of any website that we link to, and external sites are governed by their own terms and conditions and privacy policies.
+
+2.12 Links to other websites and embedded content: Our website may contain links to other websites of interest. However, we are not responsible for the content of any website that we link to, and external sites are governed by their own terms and conditions and privacy policies. We may use third parties to provide embedded content (e.g. pictures) on our website which may collect information about you. The legal basis for this processing is our legitimate interest to operate our website economically.
 
 3. Network traffic that may go through third-parties
 
@@ -89,6 +88,12 @@ Purpose: Provide services in relation with the processing of customer support da
 Data processing location: United States
 Guarantees for international transfer: Standard Contractual Clauses, Binding Corporate Rules, Certifications
 
+Calendly, LLC.
+
+Purpose: Schedule appointments with Customer Support for Business users (section 2.6)
+Data processing location: United States
+Guarantees for international transfer: Adequacy Decision, Certifications
+
 Stripe, Inc.
 
 Purpose: Provide services in relation with the processing of payment data (section 2.8)
@@ -99,6 +104,12 @@ PayPal group
 
 Purpose: Provide services in relation with the processing of payment data (section 2.8)
 Data processing location: United States, Singapore
+Guarantees for international transfer: Standard Contractual Clauses, Data Processing Agreement
+
+Chargebee, Inc.
+
+Purpose: Provide services in relation with the processing of payment data (section 2.8)
+Data processing location: United States
 Guarantees for international transfer: Standard Contractual Clauses, Data Processing Agreement
 5. Data disclosure
 
