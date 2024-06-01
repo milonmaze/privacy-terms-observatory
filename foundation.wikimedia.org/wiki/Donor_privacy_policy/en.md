@@ -46,6 +46,8 @@ svenska
  
 ślůnski
  
+кыргызча
+ 
 русский
  
 українська
@@ -121,6 +123,7 @@ Peering policy
 Phabricator Terms of Use
 Purchasing and disbursements procedures
 Requests for user information
+Scholarship travel policy
 Service provider travel guidance
 
 vte
