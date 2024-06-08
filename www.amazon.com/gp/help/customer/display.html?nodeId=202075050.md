@@ -54,6 +54,7 @@ Communications from Amazon.com
 Legal Policies
 Your Security
 Report Unsolicited Packages or Brushing Scams
+How do I keep my account safe and secure?
 Quick solutions
 	
 
