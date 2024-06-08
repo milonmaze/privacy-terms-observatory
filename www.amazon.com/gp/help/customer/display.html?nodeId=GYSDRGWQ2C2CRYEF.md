@@ -18,6 +18,7 @@ We are members of numerous associations focused on protecting privacy and securi
 
 Amazon Information Request Reports
 
+July - December 2023 Report
 January - June 2023 Report
 July - December 2022 Report
 January - June 2022 Report
@@ -71,6 +72,7 @@ Communications from Amazon.com
 Legal Policies
 Your Security
 Report Unsolicited Packages or Brushing Scams
+How do I keep my account safe and secure?
 Quick solutions
 	
 
