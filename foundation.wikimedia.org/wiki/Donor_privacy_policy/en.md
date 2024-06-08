@@ -78,6 +78,8 @@ Access to nonpublic personal data
 Access to temporary account IP addresses
 Code of conduct for Wikimedia technical spaces, including events
 Cookie statement
+Data collection guidelines
+Data publication guidelines
 Data retention guidelines
 Digital Millennium Copyright Act (DMCA)
 Donor privacy
