@@ -12,7 +12,6 @@ Account Usernames and Display Names Policy
 Accessibility Statement
 Developer Agreement
 Monetized Streamer Agreement
-Supplemental Fees Statement
 Bits Acceptable Use Policy
 Channel Points Acceptable Use Policy
 Cookie Notice
@@ -21,10 +20,11 @@ Photosensitive Seizure Warning
 Predictions Terms and Conditions
 Events Code Of Conduct
 Transparency Report
-Community Guidelines FAQ
 Modern Day Slavery Statement
 State-Specific Privacy Disclosures
+Recommendations On Twitch
 Gift Card & Gift Card Balance Terms and Conditions
+Service of Process
 Advertising
 Blog
 Brand
@@ -200,7 +200,3 @@ Visit the State-Specific Privacy Disclosures page to read additional disclosures
 Japan Privacy Disclosures
 
 Visit the Japan Privacy Disclosures page to read additional disclosures required under the Act on Protection of Personal Information.
-
-Republic of Korea Privacy Disclosures
-
-Visit the Republic of Korea Privacy Disclosures page to read additional disclosures required under the Personal Information Protection Act.
