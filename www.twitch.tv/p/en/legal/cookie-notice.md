@@ -12,7 +12,6 @@ Account Usernames and Display Names Policy
 Accessibility Statement
 Developer Agreement
 Monetized Streamer Agreement
-Supplemental Fees Statement
 Bits Acceptable Use Policy
 Channel Points Acceptable Use Policy
 Cookie Notice
@@ -21,10 +20,11 @@ Photosensitive Seizure Warning
 Predictions Terms and Conditions
 Events Code Of Conduct
 Transparency Report
-Community Guidelines FAQ
 Modern Day Slavery Statement
 State-Specific Privacy Disclosures
-Gift Card & Gift Card Balance Terms and Conditions
+Recommendations On Twitch
+Twitch Gift Card & Gift Card Balance Terms and Conditions
+Service of Process
 Advertising
 Blog
 Brand
