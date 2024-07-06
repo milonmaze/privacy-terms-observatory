@@ -1,8 +1,6 @@
 Help Center
 Join Netflix
 Sign In
-Wait times for chat support are longer than usual right now
-Check back later, or search our Help Center for answers.
 Back to Help Home
 Print
 Privacy Statement
@@ -498,6 +496,8 @@ If you do not own a Netflix account, we may not be able to respond to certain re
 
 Last Updated: April 17, 2024
 
+SELECT YOUR PREFERRED LANGUAGE:
+Select a language
 English
 Español
 Terms of Use
