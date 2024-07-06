@@ -10,10 +10,14 @@ Review other privacy notices
 
 U.S. Consumer Privacy Notice
 
+Children's Privacy Policy
+
 California Consumer Privacy Notice
 
 Data protection notices for employees,
 contractors and applicants
+
+Switzerland Resident Privacy Notice
 
 Manage your privacy options
 
@@ -21,7 +25,6 @@ Control how we can share your data and
 market to you
 
 Opt-out of ads based on your online activity
- layer
 
 See how to receive promotional emails
 
@@ -33,9 +36,9 @@ Cookie Policy (PDF)
 
 Visit the Security Center for ways to protect your info
 
-Bank of America U.S.Online Privacy Notice
+Bank of America U.S. Online Privacy Notice
 
-(Last updated January 31, 2023)
+(Last updated March 1, 2024)
 
 Your privacy is important to us. We conduct regular assessment reviews and abide by rigorous privacy standards to ensure personal information we collect, use and share is protected. This U.S. Online Privacy Notice ("Notice") describes how Bank of America and our affiliates manage personal information about you when you interact with us online through our websites, event registration sites, mobile applications and social sites ("Sites and Mobile Apps") through your computer, smartphone, tablet or other mobile devices ("computer or mobile devices").
 
@@ -59,12 +62,7 @@ Download our U.S. Online Privacy Notice in Spanish (PDF)
 Expand all
 panels
 Our Online Privacy Practices
-, closed
 Personal Information We Collect Online
-, closed
 How We Use and Share Personal Information
-, closed
 Online Behavioral Advertising
-, closed
 Additional Information
-, closed
