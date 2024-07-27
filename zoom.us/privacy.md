@@ -250,7 +250,3 @@ We may update this Privacy Statement periodically to account for changes in our 
 Privacy Statement Update Notes (July 19, 2024):
 
 Updates to How do We Use Personal Data section to modify language about how Intelligent Features are enabled. To help our customers more easily find and access Zoom AI Companion capabilities, we removed one of the two steps required to turn on AI Companion. Beginning July 21, 2024, AI Companion features are enabled by default for select accounts subscribing to our Pro or Business license package. Users will still take the step of choosing when to use these features, including in meetings they host, and Administrators continue to have the ability to turn these features off.
-
-Zoom uses cookies and similar technologies as described in our cookie statement. You can manage your cookie settings or exercise your rights related to cookies through our Cookies Settings.
-
-Cookies Settings
