@@ -1,7 +1,5 @@
 www.researchgate.net
-Checking if the site connection is secure
+Verifying you are human. This may take a few seconds.
 www.researchgate.net needs to review the security of your connection before proceeding.
-Did you know some signs of bot malware on your computer are computer crashes, slow internet, and a slow computer?
-Why am I seeing this page? 
-Ray ID: 75a95133f90cce70
+Ray ID: 8ad7206649a396c5
 Performance & security by Cloudflare
