@@ -191,10 +191,16 @@ For more information on how to control and access your personal data, please see
 
 Was this article helpful?
 
-Yes, thanks!
+Yes, thanks
 
 Not really
 
+Community answers
+When I try to upload content using the website, nothing happens.
+Posted by: rbkeep 43 days ago
+12989
+8
+0
 Related Articles
 Data storage
 
