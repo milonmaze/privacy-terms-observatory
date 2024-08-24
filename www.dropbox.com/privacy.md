@@ -13,6 +13,7 @@ You can see the previous Privacy Policy here.
 
 Thanks for using Dropbox! Here we describe how we collect, use, and handle your personal data when you use our websites, software, and services (“Services”). For more information and details, please see our Frequently Asked Questions page.
 
+
 What & Why
 
 We collect and use the following information to provide, improve, protect, and promote our Services.
