@@ -1,4 +1,3 @@
-Skip to main content
 Reporting governance and approach
 Empowering every person and every organization to achieve more requires careful attention to the impact of our business practices, policies, and community investments.
 Our policies and practices
@@ -61,4 +60,4 @@ View the UN Guiding Principles on Business and Human Rights View the Microsoft H
 Sustainable Development Goals
 We're actively engaged in supporting the UN Sustainable Development Goals and publicly report how Microsoft contributes to the global effort to achieve the SDGs.
 Learn more about UN Sustainable Development Goals Read our SDG report
-Follow Microsoft
+Follow Microsoft   
