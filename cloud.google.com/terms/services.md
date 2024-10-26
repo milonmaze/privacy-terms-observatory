@@ -185,15 +185,13 @@ Anti Money Laundering AI (AML AI): AML AI enhances financial institutions' legac
 Automotive AI Agent API: The Automotive AI Agent API is used for creating, managing, and deploying voice agent experiences. This includes access to certain pre-trained voice agents for automotive contexts.
 Automotive AI Agent Premium Software: The Automotive AI Agent solution includes Premium Software components identified below.
 
-Contact Center AI (CCAI): CCAI uses AI to improve the customer experience in contact centers. It includes Agent Assist, Dialogflow Essentials, Dialogflow Customer Experience Edition (CX), Insights, Speech-to-Text, Text-to-Speech, and Speaker ID.
+Conversational AI (formerly Contact Center AI (CCAI)): Conversational AI uses AI to improve the customer experience in contact centers. It includes Agent Assist, Dialogflow Essentials, Dialogflow Customer Experience Edition (CX), Insights, Speech-to-Text, Text-to-Speech, and Speaker ID.
 
-Contact Center AI Insights: Contact Center AI Insights helps customers extract value from their contact center data by identifying sentiment and topics and highlighting key insights in the data.
+Conversational Insights (formerly Contact Center AI Insights): Conversational Insights helps customers extract value from their contact center data by identifying sentiment and topics and highlighting key insights in the data.
 
-Contact Center AI (CCAI) Platform: CCAI Platform is a contact-center-as-a-service (CCaaS) platform leveraging CCAI. It integrates directly with CRMs and queues and routes customer interactions across voice and digital channels to resource pools, including human agents.
+Dialogflow Essentials (ES): Dialogflow ES is a development suite for voice and text conversational apps that can connect to customer applications and telephony and digital platforms.
 
-Dialogflow Essentials(ES): Dialogflow ES is a development suite for voice and text conversational apps that can connect to customer applications and telephony and digital platforms.
-
-Dialogflow Customer Experience Edition (CX): Dialogflow CX is a development suite for creating conversational AI applications including chatbots and voicebots. It includes a visual bot building platform, collaboration and versioning tools, bot modularization tools, and advanced IVR feature support.
+Dialogflow Customer Experience Edition (CX)xperience Edition (CX)): Dialogflow CX is a development suite for creating conversational AI applications including chatbots and voicebots. It includes a visual bot building platform, collaboration and versioning tools, bot modularization tools, and advanced IVR feature support.
 
 Document AI: Document AI is a unified console for document processing that lets you quickly access all document processing models and tools. Customers can use Document AI's pre-trained models for document extraction, including OCR, Form Parser and specialized models.
 
@@ -201,7 +199,9 @@ Document Workbench: Document Workbench allows you to build a custom classificati
 *Human-in-the-Loop AI: Human-in-the-Loop AI uses Document AI to provide workflow tools for human verification of data extracted from documents.
 Document AI Warehouse: Document AI Warehouse is a highly-scalable, fully managed data management and governance platform that integrates with enterprise document workflows to store, search, and organize documents and their metadata.
 
-*Food Ordering AI Agent: Food Ordering AI Agent is a pre-built conversational AI agent designed to enhance food ordering operations. It utilizes LLMs, Speech-to-Text, Text-to-Speech, and Dialogflow to automate the food ordering process (including at a drive-thru window), and additionally connects to BigQuery and Looker to give restaurant operators data-driven insights into their operations.
+Food Ordering AI Agent: Food Ordering AI Agent is a pre-built conversational AI agent designed to enhance food ordering operations. It utilizes LLMs, Speech-to-Text, Text-to-Speech, and Dialogflow to automate the food ordering process (including at a drive-thru window), and additionally connects to BigQuery and Looker to give restaurant operators data-driven insights into their operations.
+
+Google Cloud Contact Center as a Service (CCaaS) (formerly Contact Center AI (CCAI) Platform): Google Cloud CCaaS is a contact-center-as-a-service (CCaaS) platform leveraging Conversational AI. It integrates directly with CRMs and queues and routes customer interactions across voice and digital channels to resource pools, including human agents.
 
 *Talent Solution: Talent Solution offers access to Google's machine learning, enabling company career sites, job boards, ATS, staffing agencies, and other recruitment technology platforms to improve the talent acquisition experience.
 
@@ -258,7 +258,6 @@ Gemini for Google Cloud (formerly known as Duet AI for Google Cloud): Gemini for
 
 Gemini Code Assist (formerly known as Duet AI for Developers) provides AI-powered assistance to help your development team build, deploy, and operate applications throughout the software development lifecycle.
 Gemini in BigQuery provides AI-powered assistance to help you understand, query, and work with your data across the entire data lifecycle.
-Gemini in Firebase provides AI-powered assistance to help you build, launch, and scale your Firebase apps more rapidly.
 
 Generative AI on Vertex AI: Generative AI on Vertex AI is any Service with generative AI functionality in Vertex AI, including:
 
@@ -269,6 +268,8 @@ Vertex AI Search allows customers to leverage foundational models and search an
 Vertex AI Studio is a user interface in the Google Cloud console for rapidly prototyping and testing generative AI models.
 
 Generative AI Services also includes any generative AI features of a Service.
+
+Vertex AI in Firebase: Vertex AI in Firebase allows you to add generative AI features to applications using the Vertex AI Gemini API, providing a service API layer and SDKs that are integrated into Firebase systems and products. It works with App Check while supporting idiomatic language for Swift, Kotlin, Dart, and JavaScript.
 
 API Management
 
@@ -332,6 +333,8 @@ Security
 Access Transparency: Access Transparency captures near real-time logs of manual, targeted accesses by Google administrators, and serves them to customers via their Cloud Logging account.
 
 Assured Workloads: Assured Workloads provides functionality to create security controls that are enforced on your cloud environment. These security controls can assist with your compliance requirements (for example, FedRAMP Moderate).
+
+Audit Manager: Audit Manager provides customers with a shared responsibility matrix for selective compliance standards which Audit Manager supports through Google Cloud Platform.It enables customers to perform compliance assessments against their workloads and generate evidence to support compliance audits.
 
 Binary Authorization: Binary Authorization helps customers ensure that only signed and explicitly-authorized workload artifacts are deployed to their production environments. It offers tools for customers to formalize and codify secure supply chain policies for their organizations.
 
@@ -491,14 +494,17 @@ Below is a non-exclusive list of available software components subject to the Go
 
 ABAP SDK for Google Cloud enables native, bi-directional integration between SAP applications and Google Cloud.
 BigQuery Connector for SAP replicates, in connection with SAP Landscape Transformation Replication Server, SAP NetWeaver-based application data changes in near real-time and directly into BigQuery.
-CCAI Connector: CCAI Connector enables enterprise contact centers with on-premise legacy telephony platforms to connect with Dialogflow Essentials, Dialogflow CX, Agent Assist, and Insights.
+CCAI Connector: CCAI Connector enables enterprise contact centers with on-premise legacy telephony platforms to connect with Dialogflow Essentials, Dialogflow CX, Agent Assist, and Conversational Insights.
 Config Connector is a Kubernetes add-on that allows you to manage your Google Cloud resources through Kubernetes configuration files.
 Deep Learning VM and Container: Deep Learning VM and Container provides virtual machine and Docker images with AI frameworks that can be customized and used with Google Kubernetes Engine (GKE), Vertex AI, Cloud Run, Compute Engine, Kubernetes, and Docker Swarm.
 Google Cloud SDK: Google Cloud SDK is a set of tools to manage resources and applications hosted on Google Cloud Platform. It includes the Google Cloud Command Line Interface (CLI), Cloud Client Libraries for programmatic access to Google Cloud Platform services, the gsutil, kubectl, and bq command line tools, and various service and data emulators for local platform development. The Google Cloud SDK provides the primary programmatic interfaces to Google Cloud Platform.
 Kf enables you to migrate and run applications from the open-source Cloud Foundry platform into containers in Google Kubernetes Engine.
 Migrate to Containers enables you to migrate and run applications from virtual machines on-premise or other clouds into containers in Google Kubernetes Engine and Cloud Run, while producing container and data artifacts for integration with modern CI/CD and Google Cloud services. Migrated container images and artifacts are portable for use across a variety of Google Kubernetes Engine and Cloud Run hybrid configurations as listed in the applicable software documentation. With Migrate to Containers, the need for application rewrite is minimized.
 Migrate for Compute Engine v4.X enables you to validate, run, and migrate applications from on-premise or other clouds into Compute Engine while minimizing downtime and application rewrite.
-PREVIOUS VERSIONS (Last modified September 30, 2024)
+PREVIOUS VERSIONS (Last modified October 24, 2024)
+October 22, 2024
+October 7, 2024
+September 30, 2024
 September 24, 2024
 September 5, 2024
 August 28, 2024
