@@ -1,7 +1,4 @@
 Jump to content
-
-Photograph a historic site, help Wikipedia, and win a prize. Participate in the world's largest photography competition this month! Learn more
-
 (Redirected from Donor privacy policy/en)
 Translate this page
 Other languages:	
@@ -93,6 +90,7 @@ Donor privacy
 SMS supplementary terms
 General disclaimer
 Human rights
+IP Information Tool
 Licensing
 Office actions
 Privacy
