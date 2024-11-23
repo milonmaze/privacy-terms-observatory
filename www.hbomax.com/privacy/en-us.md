@@ -131,3 +131,42 @@ Slovenščina
 Svenska
 
  
+
+Asia Pacific
+Privacy Policy
+
+English
+
+繁體中文 (香港)
+
+繁體中文 (臺灣)
+
+ภาษาไทย
+
+Filipino
+
+Bahasa Melayu
+
+Bahasa Indonesia
+
+简体中文
+
+ 
+
+Legal Bases Chart
+
+English
+
+繁體中文 (香港)
+
+繁體中文 (臺灣)
+
+ภาษาไทย
+
+Filipino
+
+Bahasa Melayu
+
+Bahasa Indonesia
+
+简体中文
