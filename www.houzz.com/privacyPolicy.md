@@ -305,7 +305,4 @@ Facebook
 YouTube
 RSS
 
-When you click “Accept”, you agree that Houzz and our partners may use cookies and other tracking tools to personalize content, advertise to your interests, and optimize our site’s functionality. You can read our Cookie Policy, Privacy Policy, or customize preferences here.
-
-Decline
-Accept
+I acknowledge that Houzz and its vendors use cookies to optimize your experience. For more information see our Privacy Policy and Cookie Policy.
