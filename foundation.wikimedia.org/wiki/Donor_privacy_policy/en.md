@@ -1,4 +1,5 @@
 Jump to content
+Photograph your local culture, help Wikipedia and win!
 (Redirected from Donor privacy policy/en)
 Translate this page
 Other languages:	
@@ -113,6 +114,7 @@ Foreign corrupt practices act policy
 Gifts
 Non-discrimination
 Policy and political association guideline
+Staff Userrights
 Travel and expense
 Travel approval
 Whistleblower
