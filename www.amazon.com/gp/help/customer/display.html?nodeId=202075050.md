@@ -25,7 +25,9 @@ Advertising Preferences
 
 Amazon offers you choices about receiving interest-based ads from us. You can choose not to receive interest-based ads from Amazon. You will still see ads but they will not be based on your interests. Please visit your Advertising Preferences page to learn how to set your preferences.
 
-You can also generally opt out of receiving personalized ads from third party advertisers and ad networks who are members of the Network Advertising Initiative (NAI) or who follow the Digital Advertising Alliance’s Self-Regulatory Principles for Online Behavioral Advertising by visiting the opt out pages on the NAI website and DAA website.
+You can also generally opt out of receiving personalized ads from third party advertisers and ad networks who are members of the Network Advertising Initiative (NAI) or who follow the Digital Advertising Alliance’s Self-Regulatory Principles for Online Behavioral Advertising by visiting the opt out pages on the NAI website and DAA website .
+
+Some mobile operating systems may additionally limit these settings; your choices here do not override those more limited settings on such mobile operating systems.
 
 For information on the advertising practices of websites and services offered by other Amazon companies, please review their interest-based ads policies and other notices.
 
@@ -43,7 +45,7 @@ How Amazon Collects Your Personal Information
 How Amazon Protects Your Personal Information
 Manage Your Personal Information
 Interest-Based Ads
-EU-US and Swiss-US Data Privacy Framework
+EU-US Data Privacy Framework, UK Extension, and Swiss-US Data Privacy Framework
 About Cookies
 California Supply Chain Transparency Act Statement
 Human Rights and Environmental Grievances
@@ -54,6 +56,7 @@ Legal Policies
 Your Security
 Report Unsolicited Packages or Brushing Scams
 How do I keep my account safe and secure?
+How to Obtain Amazon Transaction Records After Identity Theft
 Quick solutions
 	
 
