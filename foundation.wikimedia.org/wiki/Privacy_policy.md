@@ -2,7 +2,7 @@ Jump to content
 Photograph your local culture, help Wikipedia and win!
 (Redirected from Privacy policy)
 Translate this page
-Other languages:	
+Other languages:	 
 Avañe'ẽ
  
 Bahasa Indonesia
@@ -221,6 +221,8 @@ svenska
  
 ລາວ
  
+တႆး
+ 
 ပအိုဝ်ႏဘာႏသာႏ
  
 ဖၠုံလိက်
@@ -228,8 +230,6 @@ svenska
 ဘာသာမန်
  
 မြန်မာဘာသာ
- 
-ၽႃႇသႃႇတႆး
  
 მარგალური
  
