@@ -1,4 +1,3 @@
- 
 On this page
 1. Information regarding the technologies we use
 2. Which service providers do we cooperate with?
@@ -75,14 +74,14 @@ In our User Privacy Notice we have compiled all essential information about our 
 
 
 
-This User Privacy Notice is effective from April 8, 2024. View the previous User Privacy Notice.
+This User Privacy Notice is effective from April 21, 2025. View the previous User Privacy Notice.
 
 
 
 15 min article
 User Agreement
 
-This User Agreement is effective upon acceptance for new users, and from July 26, 2024 for existing users. The previous amendment to this User Agreement was effective for all users on October 28, 2023.
+For users who agreed to a prior version of our User Agreement, this agreement is effective as of May 16, 2025. For users who had not previously agreed to the User Agreement, this agreement is effective upon acceptance. The previous amendment to this User Agreement was effective for all users on July 26, 2024.
 
 
 
