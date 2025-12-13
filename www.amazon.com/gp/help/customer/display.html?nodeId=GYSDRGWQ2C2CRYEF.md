@@ -69,12 +69,12 @@ About Cookies
 California Supply Chain Transparency Act Statement
 Human Rights and Environmental Grievances
 Law Enforcement Information Requests
-Request Your Personal Information
+Request your personal information
 Communications from Amazon.com
 Legal Policies
 Your Security
 Report Unsolicited Packages or Brushing Scams
-How do I keep my account safe and secure?
+How to keep your account safe and secure
 How to Obtain Amazon Transaction Records After Identity Theft
 Customer Service History
 Quick solutions
@@ -113,3 +113,17 @@ Shipping carrier information
 Account Settings
 
 Change email or password
+
+Test: amzn-nv-flyout-healthy-choice
+Test: nav-rufus-disc-txt
+Test: a-truncate-cut
+Test: sp-cc-wrapper
+Test: .mo-wp
+Test: .a-image-container
+Test: sp-cc
+Test: .amzn-box-inner
+Test: .js-order-card
+Test: pldn-deep-link
+Test: add-to-cart-btn
+Test: amzn-nav-app-banner-container
+Test: .sparkle-container
