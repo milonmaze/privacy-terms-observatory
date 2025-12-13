@@ -1,7 +1,7 @@
 Skip to main content
 Microsoft Privacy Statement
 
-Last Updated: October 2025
+Last Updated: December 2025
 
 What's new?
 
@@ -581,15 +581,11 @@ Back to top
 
 U.S. State Data Privacy
 
-If you are a U.S. resident, we process your personal data in accordance with applicable U.S. state data privacy laws, including the California Consumer Privacy Act (CCPA). This section of our privacy statement contains information required by the CCPA and other U.S. state data privacy laws and supplements our privacy statement.
-
-Please note that rules implementing some of these laws have not yet been finalized. We will update our processes, disclosures, and this notice as these implementing rules are finalized, and as otherwise necessary.
-
-Please also see our  U.S. State Data Privacy Laws Notice and our Consumer Health Data Privacy Policy for additional information about the data we collect, process, share and disclose, and your rights under applicable U.S. state data privacy laws.
+If you are a U.S. resident, we process your personal data in accordance with applicable U.S. state data privacy laws, including the California Consumer Privacy Act (CCPA). This section of our privacy statement contains information required by the CCPA and other U.S. state data privacy laws and supplements our privacy statement. Please also see our  U.S. State Data Privacy Laws Notice  and our  Consumer Health Data Privacy Policy  for additional information about the data we collect, process, share and disclose, and your rights under applicable U.S. state data privacy laws.
 
 Sale. We do not sell your personal data. So, we do not offer an opt-out to the sale of personal data.
 
-Profiling.  We do not engage in “profiling” that utilizes your personal data for automated decision-making that produces legal or similarly significant effects.  So, we do not offer an opt-out for this type of profiling.
+Profiling. We do not engage in “profiling” that utilizes your personal data for automated decision-making that produces legal or similarly significant effects.  So, we do not offer an opt-out for this type of profiling.
 
 Share. We may “share” your personal data, as defined under California and other applicable U.S. state laws, for personalized advertising purposes. As noted in our  Advertising section, we do not deliver personalized advertising to children whose birthdate in their Microsoft account identifies them as under 18 years of age.
 
@@ -612,17 +608,17 @@ Purposes of Processing: To deliver personalized advertising based on your intere
 
 Please see the  Advertising section for more information about our advertising practices, and our  U.S. State Data Privacy Laws Notice for more information on “sharing” for personalized advertising purposes under applicable U.S. state laws.
 
-Rights. You have the right to (i) know what personal data we collect, use, disclose, “share”, and sell, (ii) delete your personal data, (iii) correct your personal data, (iv) restrict the use and disclosure of your sensitive data, (v) receive a copy of your personal data, and (vi) opt-out of “sharing” your personal data with third parties for personalized advertising purposes on third party sites. You may make these requests yourself or through an authorized agent. If you use an authorized agent, we provide your agent with detailed guidance on how to exercise your privacy rights. Please see our U.S. State Data Privacy Laws Notice for additional information on how to exercise these rights.
+Rights. You have the right to (i) know what personal data we collect, use, disclose, “share”, and sell, (ii) delete your personal data, (iii) correct your personal data, (iv) restrict the use and disclosure of your sensitive data, (v) receive a copy of your personal data, and (vi) opt-out of “sharing” your personal data with third parties for personalized advertising purposes on third party sites. You may have the right to know how we may provide your data to certain third parties (if any). You can make these requests yourself or through an authorized agent. If you use an authorized agent, we provide your agent with detailed guidance on how to exercise your privacy rights. Please see our U.S. State Data Privacy Laws Notice for additional information on how to exercise these rights.
 
-Universal Opt-Outs. Microsoft receives and responds to the Global Privacy Control (GPC) browser opt-out signal. Microsoft will turn off sharing your data with third parties for personalized ads if we receive a GPC signal from you when you visit our sites.
+You may indicate your choice to opt-out of the sharing of your personal data with third parties for personalized advertising on third party sites by visiting our sharing opt-out page. You can also control the personalized advertising you see on Microsoft properties by visiting our opt-out page.
 
-You may have additional rights related to your consumer health data as defined by applicable state consumer health privacy laws. Please see our  Consumer Health Data Privacy Policy for information on the rights available under Washington State’s My Health My Data Act (MHMDA) and other applicable U.S. consumer health privacy laws.
-
-If you have a Microsoft account, you can exercise your rights through the Microsoft privacy dashboard, which requires you to log in to your Microsoft account. If you have an additional request or questions after using the dashboard, you may contact Microsoft at the address in the How to contact us section, visit our privacy support and requests page, or call our US toll free number +1 (844) 931 2038. If you do not have an account, you may exercise your rights by contacting us as described above. To further protect your personal data, we may ask for additional information, such as your country of residence, email address, and phone number to validate your identity and request before honoring the request.
-
-You may indicate your choice to opt-out of the sharing of your personal data with third parties for personalized advertising on third party sites by visiting our sharing opt-out page. You can also control the personalized advertising you see on Microsoft properties by visiting our opt-out page.
+Universal Opt-Outs. Microsoft receives and responds to the Global Privacy Control (GPC) browser opt-out signal. Microsoft will turn off sharing your data with third parties for personalized ads and turn off the “Share my data with third parties for personalized ads” toggle if we receive a GPC signal from you when you visit our sites.
 
 We do not use or disclose your sensitive data for purposes other than those listed below, without your consent, or as permitted or required under applicable laws. So, we do not offer an ability to limit the use of sensitive data.
+
+You may have additional rights related to your consumer health data as defined by applicable state consumer health privacy laws. Please see our Consumer Health Data Privacy Policy for information on the rights available under Washington State’s My Health My Data Act (MHMDA) and other applicable U.S. consumer health privacy laws.
+
+If you have a Microsoft account, you can exercise your rights through the Microsoft privacy dashboard, which requires you to log in to your Microsoft account. If you have an additional request or questions after using the dashboard, you may contact Microsoft at the address in the How to contact us section, visit our privacy support and requests page, or call our US toll free number +1 (844) 931 2038. If you do not have an account, you may exercise your rights by contacting us as described above. To further protect your personal data, we may ask for additional information, such as your country of residence, email address, and phone number to validate your identity and request before honoring the request.
 
 If you have made a request to Microsoft to know, delete, correct, or receive your personal information and believe your request was denied by Microsoft, you can exercise your right to appeal the results of your request by contacting our privacy support team via our privacy support and requests page. If your appeal is unsuccessful and depending upon the state where you live, you may have the right to raise a concern or lodge a complaint with your state attorney general.
 
@@ -739,7 +735,7 @@ We may use information about you to serve you with personalized advertising when
 
 Further details regarding our advertising-related uses of data include:
 
-Advertising industry best practices and commitments. Microsoft is a member of the  Network Advertising Initiative (NAI) and adheres to the NAI Code of Conduct. We also adhere to the following self-regulatory programs:
+Advertising industry best practices and commitments. Microsoft participates in industry self-regulatory programs and adheres to the NAI Self-Regulatory Framework. We also adhere to the following self-regulatory programs:
 In the US:  Digital Advertising Alliance (DAA)
 In Europe:  European Interactive Digital Advertising Alliance (EDAA)
 In Canada:  Ad Choices: Digital Advertising Alliance of Canada (DAAC) /  Choix de Pub: l'Alliance de la publicité numérique du Canada (DAAC)
@@ -749,7 +745,7 @@ Data retention. For personalized advertising, we retain data for no more than 13
 Sensitive Data. Microsoft Advertising does not collect, process, or disclose personal data that qualifies as “sensitive data” under applicable U.S. state data privacy laws for the purposes of providing personalized advertising.
 Data sharing. In some cases, we share with advertisers reports about the data we have collected on their sites or ads.
 
-Data collected by other advertising companies. Advertisers sometimes include their own web beacons (or those of their other advertising partners) within their advertisements that we display, enabling them to set and read their own cookie. Additionally, Microsoft partners with  Xandr, a Microsoft company, and third-party ad companies to help provide some of our advertising services, and we also allow other third-party ad companies to display advertisements on our sites. These third parties may place cookies on your computer and collect data about your online activities across websites or online services. These companies currently include, but are not limited to:  Facebook,  Media.net,  Outbrain,  Taboola and  Yahoo. Select any of the preceding links to find more information on each company's practices, including the choices it offers. Many of these companies are also members of the  NAI or  DAA, which each provide a simple way to opt out of ad targeting from participating companies.
+Data collected by other advertising companies. Advertisers sometimes include their own web beacons (or those of their other advertising partners) within their advertisements that we display, enabling them to set and read their own cookie. Additionally, Microsoft partners with  Xandr, a Microsoft company, and third-party ad companies to help provide some of our advertising services, and we also allow other third-party ad companies to display advertisements on our sites. These third parties may place cookies on your computer and collect data about your online activities across websites or online services. These companies currently include, but are not limited to:  Facebook,  Media.net,  Outbrain,  Taboola and  Yahoo. Select any of the preceding links to find more information on each company's practices, including the choices it offers. Many of these companies participate in the DAA (U.S.), EDAA (Europe) or DAAC (Canada), which provide industry-wide choice tools.
 
 To opt out of receiving personalized advertising from Microsoft, visit our  opt-out page. When you opt out, your preference is stored in a cookie that is specific to the web browser you are using. The opt-out cookie has an expiration date of five years. If you delete the cookies on your device, you need to opt out again.
 
@@ -1248,15 +1244,11 @@ SwiftKey
 
 The Microsoft SwiftKey keyboard and related cloud-based services (collectively, the “SwiftKey Services”) process data about words you use and how you type and use this data to learn your writing style and provide personalized autocorrection and predictive text that adapts to you. We also use this data to offer a range of other features, such as emoji predictions.
 
-SwiftKey prediction technology learns from the way you use language to build a personalized language model. This model is an optimized view of the words and phrases that you use most often in context and reflects your unique writing style. The model itself contains the words you commonly type arranged in a way that enables SwiftKey’s algorithms to make predictions, based on text you have already entered. The model draws from all scenarios in which you use your keyboard, including when you type while using apps or visiting websites. The SwiftKey keyboard and model attempt to avoid collecting sensitive data, by not collecting data from certain fields such as those recognized as containing password or payment data. SwiftKey Services do not log or store, the data contained in your model, unless you choose to share your data with us (as described further below). When you use SwiftKey Services, we also collect device and usage data. When you sign into your SwiftKey account and agree to share the following data, we will use de-identified device data, usage data, and model data to analyze service performance and help improve our products.
+SwiftKey prediction technology learns from the way you use language to build a personalized language model. This model is an optimized view of the words and phrases that you use most often in context and reflects your unique writing style. The model itself contains the words you commonly type arranged in a way that enables SwiftKey’s algorithms to make predictions, based on text you have already entered. The model draws from all scenarios in which you use your keyboard, including when you type while using apps or visiting websites. The SwiftKey keyboard and model attempt to avoid collecting sensitive data, by not collecting data from certain fields such as those recognized as containing password or payment data. When you use SwiftKey Services, we also collect and use de-identified device and usage data to analyze service performance and help improve our products.
 
-The SwiftKey Services also include an optional cloud component called a SwiftKey Account. If you choose to create a SwiftKey Account, your language model will be synchronized with the SwiftKey Account cloud service, so you can benefit from that model on the different devices you use and access additional services such as prediction synchronization and backup. When you create a SwiftKey Account, Microsoft will also collect your email address and basic demographic data. All data collected is transferred to our servers over encrypted channels. If you are signed in to your SwiftKey account, you can control your personal data and SwiftKey account preferences at  data.swiftkey.com.
+The SwiftKey Services also include an optional OneDrive backup component. If you turn on backup and sync, SwiftKey saves your language model and related data to OneDrive, allowing you to use your personalized prediction synchronization, additional services, and settings across all your devices. You have to sign in with a Microsoft account to enable OneDrive backup and sync. Data in OneDrive is protected by OneDrive’s security controls, including encryption in transit and at rest. You can turn backup off at any time in SwiftKey Settings and you can manage or delete the backed‑up SwiftKey data in your OneDrive.
 
-As part of your SwiftKey account, you may also opt in to share your language and/or typing data for the purposes of improving Microsoft products and services. If you opt-in, SwiftKey may send short snippets of data about what and how you type and related correction data to our servers for processing. These text snippets are used in various automated processes to validate that our prediction services are working correctly and to make product improvements. To preserve your privacy, SwiftKey Services de-identify these text snippets, and even if you have a SwiftKey Account, these text snippets will not be linked to it.
-
-If you sign into your SwiftKey Account and opt-in to share your language and typing data, Microsoft will process your shared data to look for new patterns of language usage across our user base. This allows us to improve our basic models for individual languages. Language and typing data used in this process is aggregated and any words or combinations of words that might be personal to individuals or small groups of users are filtered out.
-
-You can withdraw your consent to share your language and typing data for product improvement at any time in SwiftKey Settings. You can also withdraw your consent for SwiftKey Services to retain your personal data in SwiftKey Settings. When you withdraw consent for SwiftKey to retain your personal data, all personal data collected through your use of the SwiftKey Services will be deleted.
+As part of your SwiftKey Services, you may also opt in to share your language and/or typing data for the purposes of improving Microsoft products and services. If you opt-in, SwiftKey may send short snippets of data about what and how you type and related correction data to our servers for processing. These text snippets are used in various automated processes to validate that our prediction services are working correctly and to make product improvements. To preserve your privacy, SwiftKey Services de-identify these text snippets, and even if you sign in using a Microsoft Account, these text snippets will not be linked to it. You can withdraw your consent to share your language and typing data for product improvement at any time in SwiftKey Settings.
 
 You may receive occasional notifications on your device alerting you to product updates and features that may be of interest to you. You can disable these notifications at any time in the SwiftKey Settings.
 
@@ -1315,6 +1307,12 @@ Windows generates a unique advertising ID for each person using a device, which 
 The advertising ID setting applies to Windows apps using the Windows advertising identifier. You can turn off access to this identifier at any time by turning off the advertising ID in the Windows settings app. If you choose to turn it on again, the advertising ID will be reset and a new identifier will be generated. When a third-party app accesses the advertising ID, its use of the advertising ID will be subject to its own privacy policy.  Learn more about advertising ID in Windows.
 
 The advertising ID setting does not apply to other methods of interest-based advertising delivered by Microsoft or third parties, such as cookies used to provide interest-based display ads on websites. Third-party products accessed through or installed on Windows may also deliver other forms of interest-based advertising subject to their own privacy policies. Microsoft delivers other forms of interest-based ads in certain Microsoft products, both directly and by partnering with third-party ad providers. For more information on how Microsoft uses data for advertising, see the  How we use personal data section of this statement.
+
+Back to top
+
+Cellular plan activation from Mobile Operator website
+
+When you seek to activate a cellular data plan from a third-party mobile operator for your Windows device through the Settings app in Windows, the mobile operator's website may request access to your device and SIM card identifiers. With your consent, the Settings app may share the specific identifiers with the operator’s website.
 
 Back to top
 
