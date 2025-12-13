@@ -92,6 +92,7 @@ General disclaimer
 Human rights
 IP Information Tool
 Licensing
+Modifying CheckUser logs guidelines
 Office actions
 Privacy
 Non-wiki
@@ -106,6 +107,7 @@ Enforcement guidelines
 
 Foundation Board and staff
 
+Board of Trustees candidate review process
 Code of Conduct
 Board of Trustees
 Conflict of interest
