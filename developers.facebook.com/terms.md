@@ -1,3 +1,5 @@
+We’re updating the Platform Terms. The updates go into effect on February 3, 2026. Read the new terms
+
 Meta Platform Terms
 1. Introduction
 
@@ -396,47 +398,3 @@ t. “Third-Party Auditors” has the meaning given in Section 7.b (“Regular M
 u. “User” means the end user of an App (whether a person or an entity).
 
 v. “Your Content” has the meaning given in Section 2.b (“Your License to Us”).
-Build with Meta
-AI
-Meta Horizon OS
-Social technologies
-Wearables
-News
-Meta for Developers
-Blog
-Success stories
-Support
-Developer support
-Bug tool
-Platform status
-Developer community forum
-Report an incident
-Terms and policies
-Responsible platform initiatives
-Platform terms
-Developer policies
-Follow Us
-© 2025 Meta
-About
-Careers
-Privacy Policy
-Cookies
-Terms
-English (US)
-Bahasa Indonesia
-Deutsch
-Español
-Español (España)
-Français (France)
-Italiano
-Português (Brasil)
-Tiếng Việt
-Русский
-العربية
-ภาษาไทย
-한국어
-中文(香港)
-中文(台灣)
-中文(简体)
-日本語
-English (US)
