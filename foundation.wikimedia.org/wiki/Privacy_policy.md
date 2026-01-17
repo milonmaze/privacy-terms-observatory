@@ -1,4 +1,8 @@
 Jump to content
+
+You are invited to celebrate Wikipedia Day in San Francisco on Saturday, January 24!
+Sign up here.
+
 (Redirected from Privacy policy)
 Translate this page
 Other languages:	
@@ -678,6 +682,8 @@ Thank You!
 Thank you for reading our Privacy Policy. We hope you enjoy using the Wikimedia Sites and appreciate your participation in creating, maintaining, and constantly working to improve the largest repository of free knowledge in the world.
 
 Please note that in the event of any differences in meaning or interpretation between the original English version of this Privacy Policy and a translation, the original English version takes precedence.
+
+Back to top 
 
 This version was approved by Stephen LaPorte on September 3, 2025, pursuant to the Delegation of policy-making authority by the Board, and went into effect on October 6, 2025. Previous versions can be found below:
 
