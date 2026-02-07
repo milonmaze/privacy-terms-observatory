@@ -1,8 +1,6 @@
 Jump to content
-
-You are invited to celebrate Wikipedia Day in Los Angeles on Saturday, January 24!
-Sign up here.
-
+Wiki Loves Folklore Photograph your local culture, help Wikipedia and win! Participate Now
+[Help with translations!]
 (Redirected from Privacy policy)
 Translate this page
 Other languages:	
