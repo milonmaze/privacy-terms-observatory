@@ -71,7 +71,7 @@ Service data is used to deliver and maintain the services that schools and stude
 
 We also use service data to make recommendations to optimize the use of the services; provide and improve other services you request; provide support; protect our users, customers, the public, and Google; and comply with legal obligations. See the Google Cloud Privacy Notice for more information.
 
-Read Along also collects voice data. The voice data is processed only on the user’s device and is not shared with Google, to protect users’ privacy. Voice data is not stored at all after processing.
+Read Along also collects voice data. Voice data is primarily processed only on the user’s device and is not shared with Google. In limited cases, voice data is sent temporarily to Google servers to enable real-time speech recognition. Voice data is not stored at all after processing.
 
 Additional Services
 
@@ -164,3 +164,6 @@ Google
 Mountain View, CA 94043, USA
 
 (650) 253-0000
+
+Hi there 👋 What brings you to Google Workspace today?
+Welcome to Google Cloud Guide
