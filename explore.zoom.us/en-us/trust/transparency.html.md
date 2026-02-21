@@ -1,7 +1,8 @@
 www.zoom.com
+Performing security verification
 
-Verifying you are human. This may take a few seconds.
+This website uses a security service to protect against malicious bots. This page is displayed while the website verifies you are not a bot.
 
-www.zoom.com needs to review the security of your connection before proceeding.
-Ray ID: 9ca36ce118807ab2
-Performance & security by Cloudflare
+Ray ID: 9d16c9b83fd91f2f
+Performance and Security by Cloudflare
+Privacy
