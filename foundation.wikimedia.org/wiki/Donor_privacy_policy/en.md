@@ -1,6 +1,4 @@
 Jump to content
-Wiki Loves Folklore Photograph your local culture, help Wikipedia and win! Participate Now
-[Help with translations!]
 (Redirected from Donor privacy policy/en)
 Translate this page
 Other languages:	
@@ -107,6 +105,7 @@ Terrorist and violent extremist content procedures and guidelines
 Trademarks
 Universal code of conduct
 Enforcement guidelines
+Use of Wikimedia sites for advocacy purposes
 
 
 Foundation Board and staff
@@ -119,7 +118,7 @@ Confidentiality agreement of the Board of Trustees
 Credit card usage
 Delegation of authority
 Duty entertainment
-Foreign Corrupt Practices Act (FCPA) policy
+Foreign Corrupt Practices Act (FCPA)
 Gifts
 Non-discrimination
 Policy and political association guideline
@@ -333,7 +332,6 @@ Donor Privacy Policy (July 2011)
 Donor Privacy Policy (2009)
 
 Please note that in the event of any differences in meaning or interpretation between the original English version of this content and a translation, the original English version takes precedence.
-
 +/-
 translate
 Privacy-related pages
