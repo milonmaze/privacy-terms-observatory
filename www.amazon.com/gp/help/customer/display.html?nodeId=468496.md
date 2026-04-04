@@ -230,6 +230,7 @@ Non-Exhaustive List of Amazon Trademarks
 Amazon.com Gift Card and Electronic Message Customization Service Terms
 Generative AI Development Disclosure
 Amazon Settlement
+California Device Protection Request
 Quick solutions
 	
 
@@ -266,3 +267,17 @@ Shipping carrier information
 Account Settings
 
 Change email or password
+
+Test: amzn-nv-flyout-healthy-choice
+Test: nav-rufus-disc-txt
+Test: a-truncate-cut
+Test: sp-cc-wrapper
+Test: .mo-wp
+Test: .a-image-container
+Test: sp-cc
+Test: .amzn-box-inner
+Test: .js-order-card
+Test: pldn-deep-link
+Test: add-to-cart-btn
+Test: amzn-nav-app-banner-container
+Test: .sparkle-container
