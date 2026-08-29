@@ -28,6 +28,8 @@ Hausa
  
 Ido
  
+Jawa
+ 
 Kiswahili
  
 Kreyòl ayisyen
@@ -59,6 +61,8 @@ Ripoarisch
 Scots
  
 Soomaaliga
+ 
+Tagalog
  
 Tiếng Việt
  
