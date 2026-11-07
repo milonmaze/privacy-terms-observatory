@@ -2,7 +2,11 @@ Jump to content
 (Redirected from Privacy policy)
 Translate this page
 Other languages:	
+asturianu
+ 
 Avañe'ẽ
+ 
+azərbaycanca
  
 Bahasa Indonesia
  
@@ -10,35 +14,67 @@ Bahasa Melayu
  
 Basa Banyumasan
  
+bosanski
+ 
+català
+ 
 Cebuano
  
+čeština
+ 
 Cymraeg
+ 
+dansk
  
 Deutsch
  
 Deutsch (Sie-Form)
  
+eesti
+ 
 English
+ 
+español
  
 Esperanto
  
+euskara
+ 
+français
+ 
 Frysk
+ 
+galego
  
 Hausa
  
+hrvatski
+ 
 Ido
  
+interlingua
+ 
+italiano
+ 
 Jawa
+ 
+kabuverdianu
  
 Kiswahili
  
 Kreyòl ayisyen
  
-Ligure
+latviešu
  
 Lëtzebuergesch
  
+lietuvių
+ 
+Ligure
+ 
 Madhurâ
+ 
+magyar
  
 Malagasy
  
@@ -52,65 +88,13 @@ Nederlands (informeel)
  
 Nordfriisk
  
-Oromoo
- 
-Qaraqalpaqsha
- 
-Ripoarisch
- 
-Scots
- 
-Soomaaliga
- 
-Tagalog
- 
-Tiếng Việt
- 
-Türkçe
- 
-Yorùbá
- 
-Zazaki
- 
-asturianu
- 
-azərbaycanca
- 
-bosanski
- 
-català
- 
-dansk
- 
-eesti
- 
-español
- 
-euskara
- 
-français
- 
-galego
- 
-hrvatski
- 
-interlingua
- 
-italiano
- 
-kabuverdianu
- 
-latviešu
- 
-lietuvių
- 
-magyar
- 
 norsk bokmål
  
 occitan
  
 oʻzbekcha / ўзбекча
+ 
+Oromoo
  
 polski
  
@@ -118,9 +102,15 @@ português
  
 português do Brasil
  
+Qaraqalpaqsha
+ 
+Ripoarisch
+ 
 română
  
 sardu
+ 
+Scots
  
 shqip
  
@@ -128,13 +118,23 @@ sicilianu
  
 slovenščina
  
+Soomaaliga
+ 
 suomi
  
 svenska
  
+Tagalog
+ 
+Tiếng Việt
+ 
 toki pona
  
-čeština
+Türkçe
+ 
+Yorùbá
+ 
+Zazaki
  
 Ελληνικά
  
@@ -162,6 +162,10 @@ toki pona
  
 українська
  
+მარგალური
+ 
+ქართული
+ 
 հայերեն
  
 ייִדיש
@@ -174,6 +178,8 @@ toki pona
  
 العربية
  
+پښتو
+ 
 تۆرکجه
  
 روچ کپتین بلوچی
@@ -184,13 +190,11 @@ toki pona
  
 فارسی
  
-مازِرونی
- 
-پښتو
+کٲشُر
  
 کوردی
  
-کٲشُر
+مازِرونی
  
 नेपाली
  
@@ -220,6 +224,10 @@ toki pona
  
 සිංහල
  
+ꯃꯤꯇꯩ ꯂꯣꯟ
+ 
+ꠍꠤꠟꠐꠤ
+ 
 ไทย
  
 ລາວ
@@ -234,25 +242,17 @@ toki pona
  
 မြန်မာဘာသာ
  
-მარგალური
- 
-ქართული
- 
 ភាសាខ្មែរ
  
 ᱥᱟᱱᱛᱟᱲᱤ
+ 
+한국어
  
 中文
  
 日本語
  
 粵語
- 
-ꠍꠤꠟꠐꠤ
- 
-ꯃꯤꯇꯩ ꯂꯣꯟ
- 
-한국어
 Want to help translate? Translate the missing messages.
 	
 This policy is approved by the Wikimedia Foundation Board of Trustees.
