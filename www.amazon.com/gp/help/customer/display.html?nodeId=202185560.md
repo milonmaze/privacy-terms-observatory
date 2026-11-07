@@ -76,6 +76,7 @@ Ring Terms of Service
 Alexa Shopping List Savings Program
 Declarations of Conformity for Alexa Devices and Accessories
 Declarations of Conformity for Smart Home Devices
+Amazon Meetings and Events Policy
 Quick solutions
 	
 
